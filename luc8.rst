@@ -5,8 +5,8 @@ Le chapitre 7 se termine par « ta foi t'a sauvée. »
 
 Le chapitre 8 parle de la foi :
 
- - versets 5–21: entendre la Parole (paraboles) ;
- - versets 22–56: mettre en pratique la Parole (foi).
+ - versets 5–21 : entendre la Parole (paraboles) ;
+ - versets 22–56 : mettre en pratique la Parole (foi).
 
 
 Mise en pratique de la foi :
@@ -63,7 +63,7 @@ Cette femme avait probablement perdu son statut social, son mari, était rejeté
 12 ans de malheur → cette femme met sa foi en Jésus, Il est son seul espoir.
 
 
-« Quand Jésus est tout ce que nous avons, nous réalisons qu'Il est tout ce dont nous avons besoin. »
+« Quand Jésus est tout ce que nous avons, nous réalisons qu'Il est tout ce dont nous avons besoin. »
 
 Mais n'attendez pas de tout perdre pour le savoir!
 
