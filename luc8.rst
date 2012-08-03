@@ -1,5 +1,5 @@
 ===============================
-Évangile selon Luc, Chapitre 8
+Évangile selon Luc, chapitre 8
 ===============================
 
 Le chapitre 7 se termine par « ta foi t'a sauvée. »
@@ -16,6 +16,8 @@ Mise en pratique de la foi :
  - possédé : chez les païens. Les habitants ont peur en voyant le démoniaque guéri ;
  - femme perte de sang : en Israël, personne impure/insignifiante ;
  - Jaïrus : en Israël, personne importante.
+
+.. image:: images/nt1_1000.jpg 
 
 v. 40
 -----
