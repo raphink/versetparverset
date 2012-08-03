@@ -1,5 +1,6 @@
-Luc, Chapitre 8
-================
+===============================
+Évangile selon Luc, Chapitre 8
+===============================
 
 Le chapitre 7 se termine par « ta foi t'a sauvée. »
 
