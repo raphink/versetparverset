@@ -40,5 +40,5 @@ kindle: $(DOCUMENT)-to-kindle
 
 clean:
 	rm -f *.html *.tex
-	rm -f *.out *.log *.aux *.pdf
+	rm -f *.out *.log *.aux *.toc *.pdf
 	rm -f *.epub *.mobi
