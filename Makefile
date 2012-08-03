@@ -17,7 +17,7 @@ kindle: $(DOCUMENT)-to-kindle
 
 %.html: %.rst
 	# h1 level is for the document title
-	rst2html --initial-header-level=2 $< > $@
+	rst2html --initial-header-level=2 --no-toc-backlinks $< > $@
 
 %.epub: %.html
 	ebook-convert $< $@ $(EBOOK_CONVERT_OPTS)

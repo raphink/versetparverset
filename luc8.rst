@@ -19,8 +19,8 @@ Mise en pratique de la foi :
 
 .. image:: images/nt1_1000.jpg 
 
-v. 40
------
+Verset 40
+---------
 
 « À son retour », donc probablement après une nouvelle traversée du lac (cf. carte) :
 
@@ -33,20 +33,20 @@ Il a commencé par les païens, puis a continué avec une femme impure, et enfin
 
 « … tous l'attendaient, » suite aux miracles et aux enseignements qu'il avait prodigué auparavant côté Juif.
 
-v. 41
------
+Verset 41
+---------
 
 Jaïrus, le chef de la synagogue, vient à sa rencontre. C'est un homme important, mais il vient implorer Jésus à ses pieds.
 
 Il laisse de côté sa fierté pour venir à Jésus, un rabbin itinérant sans support du Sanhédrin.
 
-v. 42
------
+Verset 42
+---------
 
 Chez Jaïrus, 12 ans de bonheur (enfant) menacent de prendre fin → Jaïrus met sa foi en Jésus, Il est son seul espoir.
 
-v. 43
------
+Verset 43
+---------
 
 Femme impure :
 
@@ -72,13 +72,13 @@ Mais n'attendez pas de tout perdre pour le savoir!
 
 La femme impure profite de la foule pour s'approcher incognito de Jésus (en temps normal, on l'aurait probablement rejetée).
 
-v. 44
------
+Verset 44
+---------
 
 Sur les *franges* du vêtement…
 
-v. 45
------
+Verset 45
+---------
 
 « Qui m'a touché ? »
 
@@ -88,14 +88,14 @@ Le succès d'un ministère ne se mesure pas à la foule qui le suit, mais à la 
 Jésus s'inquiète plus de la personne qui l'a touché avec foi que du reste de la foule.
 
 
-v. 46
------
+Verset 46
+---------
 
 Pierre ne comprend pas ce que veut dire Jésus : « Beaucoup de gens te touchent… » Mais une personne l'a touché de façon spéciale, car la femme s'est dit qu'en le touchant, elle serait guérie, et Jésus ajoute : « une force est sortie de moi. »
 
 
-v. 47
------
+Verset 47
+---------
 
 Jésus demande à la personne qui l'a touché de se manifester. La femme vient et explique son geste.
 
@@ -104,8 +104,8 @@ Il est important de témoigner publiquement de ce que Jésus a fait pour nous. C
 Dans le cas présent, cela permet probablement à Jaïrus de renforcer sa foi en entendant ce témoignage.
 
 
-v. 48
------
+Verset 48
+---------
 
 Terme « ma fille »…
 
@@ -113,6 +113,7 @@ Encore une fois, « ta foi t'a sauvée ; va en paix. » (cf. 7.50)
 
 
 
+.. contents:: `Table of contents`
 
 
 
