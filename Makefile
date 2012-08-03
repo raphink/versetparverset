@@ -1,10 +1,10 @@
 all: luc8.pdf
 
 %.html: %.rst
-	rst2html $<
+	rst2html $< > $@
 
 %.tex: %.rst
-	rst2xetex $<
+	rst2xetex $< > $@
 
 %.pdf: %.tex
 	xelatex -interaction=batchmode $<
