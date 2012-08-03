@@ -1,5 +1,5 @@
-Chapitre 8
-==========
+Luc, Chapitre 8
+================
 
 Le chapitre 7 se termine par « ta foi t'a sauvée. »
 
@@ -25,7 +25,10 @@ v. 40
  - il a été appliquer l'enseignement pour ses disciples côté païen ;
  - il revient côté Juif.
 
-« … tous l'attendaient »
+Jésus n'a pas pris les priorités telles que la majorité des Juifs l'auraient fait.
+Il a commencé par les païens, puis a continué avec une femme impure, et enfin s'est occupé de la fille d'un responsable religieux.
+
+« … tous l'attendaient, » suite aux miracles et aux enseignements qu'il avait prodigué auparavant côté Juif.
 
 v. 41
 -----
@@ -64,9 +67,47 @@ Cette femme avait probablement perdu son statut social, son mari, était rejeté
 
 Mais n'attendez pas de tout perdre pour le savoir!
 
+La femme impure profite de la foule pour s'approcher incognito de Jésus (en temps normal, on l'aurait probablement rejetée).
 
-Jésus n'a pas pris les priorités telles que la majorité des Juifs l'auraient fait.
-Il a commencé par les païens, puis a continué avec une femme impure, et enfin s'est occupé de la fille d'un responsable religieux.
+v. 44
+-----
+
+Sur les *franges* du vêtement…
+
+v. 45
+-----
+
+« Qui m'a touché ? »
+
+On imagine bien l'impatience de Jaïrus, des disciples, voire de la foule. La fille de Jaïrus et mourante, une foule presse Jésus de tous côtés, et Jésus s'inquiète de savoir qui l'a touché!
+
+Le succès d'un ministère ne se mesure pas à la foule qui le suit, mais à la foi de ceux qui recherchent Jésus.
+Jésus s'inquiète plus de la personne qui l'a touché avec foi que du reste de la foule.
+
+
+v. 46
+-----
+
+Pierre ne comprend pas ce que veut dire Jésus : « Beaucoup de gens te touchent… » Mais une personne l'a touché de façon spéciale, car la femme s'est dit qu'en le touchant, elle serait guérie, et Jésus ajoute : « une force est sortie de moi. »
+
+
+v. 47
+-----
+
+Jésus demande à la personne qui l'a touché de se manifester. La femme vient et explique son geste.
+
+Il est important de témoigner publiquement de ce que Jésus a fait pour nous. Cela encourage la foi des autres, et cela renforce notre propre foi. Comptez les bienfaits de Dieu dans votre vie, et « remerciez Dieu le Père en tout temps et pour tout, au nom de notre Seigneur Jésus-Christ » (Éphésiens 5.20).
+
+Dans le cas présent, cela permet probablement à Jaïrus de renforcer sa foi en entendant ce témoignage.
+
+
+v. 48
+-----
+
+Terme « ma fille »…
+
+Encore une fois, « ta foi t'a sauvée ; va en paix. » (cf. 7.50)
+
 
 
 
