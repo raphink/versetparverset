@@ -4,23 +4,32 @@ endef
 
 KINDLE_PATH=/documents/raphael
 DOCUMENT=luc8
+TITLE=Évangile selon Luc, chapitre 8
+AUTHOR=Raphaël Pinson
+LANGUAGE=fr
+PUBDATE=$(shell date)
+
+EBOOK_CONVERT_OPTS=--authors "$(AUTHOR)" --title "$(TITLE)" --language "$(LANGUAGE)" --pubdate "$(PUBDATE)"
 
 all: $(DOCUMENT).pdf
 
 kindle: $(DOCUMENT)-to-kindle
 
 %.html: %.rst
-	rst2html $< > $@
+	# h1 level is for the document title
+	rst2html --initial-header-level=2 $< > $@
 
 %.epub: %.html
-	ebook-convert $< $@
+	ebook-convert $< $@ $(EBOOK_CONVERT_OPTS)
 
 %.mobi: %.html
-	ebook-convert $< $@
+	ebook-convert $< $@ $(EBOOK_CONVERT_OPTS)
 
 %-to-kindle: %.mobi
+	# cp -f doesn't work, we need to remove
+	ebook-device rm "$(KINDLE_PATH)/$<"
 	-ebook-device mkdir "$(KINDLE_PATH)"
-	ebook-device cp $< "prs500:$(KINDLE_PATH)"
+	ebook-device cp $< "prs500:$(KINDLE_PATH)/$<"
 
 %.tex: %.rst
 	rst2xetex --latex-preamble='$(LATEX_PREAMBLE)' $< > $@
