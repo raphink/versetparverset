@@ -36,6 +36,7 @@ kindle: $(DOCUMENT)-to-kindle
 
 %.pdf: %.tex
 	xelatex -interaction=batchmode $<
+	xelatex -interaction=batchmode $<
 
 clean:
 	rm -f *.html *.tex
