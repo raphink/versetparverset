@@ -1,7 +1,7 @@
 Chapitre 8
 ==========
 
-Le chapitre 7 se termine par "ta foi t'a sauvée"
+Le chapitre 7 se termine par « ta foi t'a sauvée. »
 
 Le chapitre 8 parle de la foi :
 
@@ -42,7 +42,7 @@ Chez Jaïrus, 12 ans de bonheur (enfant) menacent de prendre fin → Jaïrus met
 v. 43
 -----
 
-Femme impure:
+Femme impure :
 
 Lv 15.25-27 :
 
