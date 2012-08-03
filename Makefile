@@ -1,3 +1,5 @@
+all: luc8.pdf
+
 %.html: %.rst
 	rst2html $<
 
