@@ -4,12 +4,11 @@ endef
 
 KINDLE_PATH=/documents/raphael
 DOCUMENT=luc8
-TITLE=Évangile selon Luc, chapitre 8
 AUTHOR=Raphaël Pinson
 LANGUAGE=fr
 PUBDATE=$(shell date)
 
-EBOOK_CONVERT_OPTS=--authors "$(AUTHOR)" --title "$(TITLE)" --language "$(LANGUAGE)" --pubdate "$(PUBDATE)"
+EBOOK_CONVERT_OPTS=--authors "$(AUTHOR)" --language "$(LANGUAGE)" --pubdate "$(PUBDATE)"
 
 all: $(DOCUMENT).pdf
 
