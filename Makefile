@@ -8,7 +8,7 @@ AUTHOR=Raphaël Pinson
 LANGUAGE=fr
 PUBDATE=$(shell date)
 
-EBOOK_CONVERT_OPTS=--authors "$(AUTHOR)" --language "$(LANGUAGE)" --pubdate "$(PUBDATE)"
+EBOOK_CONVERT_OPTS=--authors "$(AUTHOR)" --language "$(LANGUAGE)" --pubdate "$(PUBDATE)" --keep-ligatures
 
 all: $(DOCUMENT).pdf
 
