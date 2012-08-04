@@ -14,7 +14,7 @@ Mise en pratique de la foi :
 
  - traversée du lac : entre Israël et les païens. Peur du lac/de la tempête → foi en Jésus ;
  - possédé : chez les païens. Les habitants ont peur en voyant le démoniaque guéri ;
- - femme perte de sang : en Israël, personne impure/insignifiante ;
+ - femme perte de sang : en Israël, personne impure/insigniﬁante ;
  - Jaïrus : en Israël, personne importante.
 
 .. image:: images/nt1_1000.jpg 
@@ -46,19 +46,19 @@ Le chef de la synagogue est donc un homme important.
 
 C’est un homme important, mais il vient implorer Jésus à ses pieds.
 
-Il laisse de côté sa fierté pour venir à Jésus, un rabbin itinérant sans support du Sanhédrin.
+Il laisse de côté sa ﬁerté pour venir à Jésus, un rabbin itinérant sans support du Sanhédrin.
 
 Verset 42
 ---------
 
-  « … car il avait une fille unique d’environ *douze ans*, qui se *mourait*. Pendant qu’il y allait, les foules le pressaient au point de l’étouffer. »
+  « … car il avait une ﬁlle unique d’environ *douze ans*, qui se *mourait*. Pendant qu’il y allait, les foules le pressaient au point de l’étouﬀer. »
 
-Chez Jaïrus, 12 ans de bonheur (enfant) menacent de prendre fin → Jaïrus met sa foi en Jésus, Il est son seul espoir.
+Chez Jaïrus, 12 ans de bonheur (enfant) menacent de prendre ﬁn → Jaïrus met sa foi en Jésus, Il est son seul espoir.
 Il sait que face à la mort, seul Jésus peut faire quelque chose.
 
-Daniel a parlé du chiffre 12 la semaine dernière, en lien avec Israël (les 12 tribus), par opposition au monde païen (chiffre 10).
+Daniel a parlé du chiﬀre 12 la semaine dernière, en lien avec Israël (les 12 tribus), par opposition au monde païen (chiﬀre 10).
 
-Ce chiffre nous rappelle encore que Jésus est de retour en Israël, et qu’il a ici affaire à des Juifs.
+Ce chiﬀre nous rappelle encore que Jésus est de retour en Israël, et qu’il a ici aﬀaire à des Juifs.
 
 Verset 43
 ---------
@@ -78,7 +78,7 @@ Cette impureté est décrite dans Lv 15.25-27 :
 
 Cette femme avait probablement perdu son statut social, son mari (qui a probablement divorcé), était rejetée du temple et de la synagogue…
 
-Pendant les 12 ans que cette femme souffrait, la fille de Jaïrus égaillait sa famille.
+Pendant les 12 ans que cette femme souﬀrait, la ﬁlle de Jaïrus égaillait sa famille.
 
 12 ans de malheur → cette femme met sa foi en Jésus, Il est son seul espoir.
 
@@ -86,8 +86,8 @@ Pendant les 12 ans que cette femme souffrait, la fille de Jaïrus égaillait sa 
 
 Mais n’attendez pas de tout perdre pour le savoir !
 
-La femme impure profite de la foule pour s’approcher incognito de Jésus (en temps normal, on l’aurait probablement rejetée).
-La foule est si dense qu’elle « étouffe » Jésus. On imagine bien les disciples faisant la sécurité pour Jésus et Jaïros : « Laissez passer ! »
+La femme impure proﬁte de la foule pour s’approcher incognito de Jésus (en temps normal, on l’aurait probablement rejetée).
+La foule est si dense qu’elle « étouﬀe » Jésus. On imagine bien les disciples faisant la sécurité pour Jésus et Jaïros : « Laissez passer ! »
 
 Verset 44
 ---------
@@ -104,7 +104,7 @@ C’était un encouragement. Jésus annoncé plus tard dans Jean 14.1–2 :
 
   « Que votre cœur ne se trouble pas. Mettez votre foi en Dieu, mettez aussi votre foi en moi. Il y a beaucoup de demeures dans la maison de mon Père. »
 
-Cette femme avait mis sa foi en Dieu, et gardait les yeux fixés sur lui par la foi.
+Cette femme avait mis sa foi en Dieu, et gardait les yeux ﬁxés sur lui par la foi.
 
 
 Verset 45
@@ -114,7 +114,7 @@ Verset 45
 
 « Qui m’a touché ? »
 
-On imagine bien l’impatience de Jaïrus, des disciples, voire de la foule. La fille de Jaïrus est mourante, une foule presse Jésus de tous côtés, et Jésus s’inquiète de savoir qui l’a touché !
+On imagine bien l’impatience de Jaïrus, des disciples, voire de la foule. La ﬁlle de Jaïrus est mourante, une foule presse Jésus de tous côtés, et Jésus s’inquiète de savoir qui l’a touché !
 
 Jésus s’inquiète plus de la personne qui l’a touché avec foi que du reste de la foule.
 Le succès d’un ministère ne se mesure pas à la foule qui le suit, mais à la foi de ceux qui recherchent Jésus. C’est Jésus qui est au centre ici, pas Jaïrus, bien que Jaïrus soit le personnage le plus important selon la société.
@@ -145,13 +145,13 @@ Dans le cas présent, cela permet probablement à Jaïrus de renforcer sa foi en
 Verset 48
 ---------
 
-  « *Mais* il lui dit : Ma fille, ta foi t’a sauvée ; va en paix. »
+  « *Mais* il lui dit : Ma ﬁlle, ta foi t’a sauvée ; va en paix. »
 
-« Ma fille »… La femme s’attend à être reprise, à ce que Jésus lui demande
+« Ma ﬁlle »… La femme s’attend à être reprise, à ce que Jésus lui demande
 de quel droit elle a touché son vêtement. Elle vient « toute tremblante »…
-*Mais* Jésus l’appelle « ma fille ».
+*Mais* Jésus l’appelle « ma ﬁlle ».
 
-On peut faire le parallèle avec la parabole du fils prodigue ici (Lc 15.11–32) : le fils revient avec humilité, se présentant comme un esclave, et le père l’accueille comme un fils retrouvé.
+On peut faire le parallèle avec la parabole du ﬁls prodigue ici (Lc 15.11–32) : le ﬁls revient avec humilité, se présentant comme un esclave, et le père l’accueille comme un ﬁls retrouvé.
 
 Nous devons venir avec humilité vers Jésus, mais quelle joie quand il nous accueille comme ses enfants !
 
@@ -160,13 +160,13 @@ Encore une fois, « ta foi t’a sauvée ; va en paix. » (cf. 7.50)
 On imagine les disciples se demandant : « Tiens, j’ai déjà entendu ça quelque part… » Le salut par la foi est important, central.
 
 Jésus n’a pas pris les priorités telles que la majorité des Juifs l’auraient fait.
-Il a commencé par les païens, puis a continué avec une femme impure, et enfin il va s’occuper de la fille d’un important responsable religieux.
+Il a commencé par les païens, puis a continué avec une femme impure, et enﬁn il va s’occuper de la ﬁlle d’un important responsable religieux.
 
 
 Verset 49
 ---------
 
-  « Il parlait encore lorsque arrive de chez le chef de la synagogue quelqu’un qui dit : Ta fille est morte ; n’importune plus le maître. »
+  « Il parlait encore lorsque arrive de chez le chef de la synagogue quelqu’un qui dit : Ta ﬁlle est morte ; n’importune plus le maître. »
 
 
 Parallèle avec Lazare (Jn 11.1–44) :
@@ -188,7 +188,7 @@ Verset 50
 « C’est par la foi… » (Heb 11) :
 
  - « que nous comprenons que les mondes ont été formés par une parole de Dieu… » ;
- - « qu’Abel offrit à Dieu un sacrifice de plus grand valeur que celui de Caïn… » ;
+ - « qu’Abel oﬀrit à Dieu un sacriﬁce de plus grand valeur que celui de Caïn… » ;
  - « qu’Hénoch fut transporté…  » ;
  - « que Noé […] bâtit une arche… » ;
  - « qu’Abraham obéit à un appel… » ;
@@ -203,7 +203,7 @@ Verset 51
 
   « Lorsqu’il fut arrivé à la maison, il ne laissa personne entrer avec lui, si ce n’est Pierre, Jean et Jacques, ainsi que le père et la mère de l’enfant. » 
 
-Les 3 disciples présents à la transfiguration, ceux qui ont vu le Royaume,
+Les 3 disciples présents à la transﬁguration, ceux qui ont vu le Royaume,
 la gloire de Dieu. Voir aussi Jn 11.41 : « Ne t’ai-je pas dit que si tu crois, tu verras la gloire de Dieu ? »
 
 
@@ -216,9 +216,9 @@ Encore un parallèle avec Lazare : « Lazare, notre ami, s’est endormi, mais 
 
 Ce à quoi les disciples ont répondu : « Ah bah, s’il dort alors, tout va bien, » et Jésus a dû répéter : « Il est mort. »
 
-À l’époque, pour des funérailles, on payait des pleureurs professionnels. Même les familles les plus pauvres payaient des pleureurs pour les enterrements. Jaïrus était riche, donc il devait y avoir plusieurs dizaines de personnes payées pour être là, avec des ménéstrels et des joueurs de flute.
+À l’époque, pour des funérailles, on payait des pleureurs professionnels. Même les familles les plus pauvres payaient des pleureurs pour les enterrements. Jaïrus était riche, donc il devait y avoir plusieurs dizaines de personnes payées pour être là, avec des ménéstrels et des joueurs de ﬂute.
 
-Ce sont des gens qui ont l’habitude d’assister à des enterrements, et ils ont probablement tous vu la jeune fille mourrir. Ils savaient qu’elle était morte.
+Ce sont des gens qui ont l’habitude d’assister à des enterrements, et ils ont probablement tous vu la jeune ﬁlle mourrir. Ils savaient qu’elle était morte.
 
 
 Verset 53
@@ -238,7 +238,7 @@ Verset 54
 
 Toucher un mort était considéré comme impur. C’est pour cela que dans la parabole du prochain, le prêtre refusait de toucher l’homme blessé.
 
-Jésus, Lui, était prêt à toucher la jeune fille morte, tout comme Il était prêt à toucher des lépreux.
+Jésus, Lui, était prêt à toucher la jeune ﬁlle morte, tout comme Il était prêt à toucher des lépreux.
 
 
 Verset 55
@@ -246,24 +246,24 @@ Verset 55
 
   « Son esprit revint ; à l’instant même elle se leva. Il ordonna qu’on lui donne à manger. »
 
-Il y a 3 résurrections dans les Évangiles : le jeune homme de Naïn (Lc 7), la fille de Jaïrus (Lc 8) et Lazare (Jn 11). Après leur résurrection :
+Il y a 3 résurrections dans les Évangiles : le jeune homme de Naïn (Lc 7), la ﬁlle de Jaïrus (Lc 8) et Lazare (Jn 11). Après leur résurrection :
 
  - le jeune homme de Naïn se mit à parler (Lc 7.15) ;
- - la jeune fille devait manger (Lc 8.55) ;
+ - la jeune ﬁlle devait manger (Lc 8.55) ;
  - Lazare a marché (Jn 11.44).
 
-Nous aussi, quand Jésus nous rappelle de la mort à la vie, nous allons parler — glorifier Dieu —, nous devons manger — nous nourrir de la Parole de Dieu —, et marcher dans les voies de Dieu.
+Nous aussi, quand Jésus nous rappelle de la mort à la vie, nous allons parler — gloriﬁer Dieu —, nous devons manger — nous nourrir de la Parole de Dieu —, et marcher dans les voies de Dieu.
 
 Verset 56
 ---------
 
-  « Les parents de la jeune fille furent stupéfaits ; il leur enjoignit de ne dire à personne ce qui était arrivé. »
+  « Les parents de la jeune ﬁlle furent stupéfaits ; il leur enjoignit de ne dire à personne ce qui était arrivé. »
 
 
 Après avoir parlé de la foi au chapitre 7, Jésus a montré les résultats de la foi en action. Notre salut est basé sur la foi.
 Nous devons mettre notre foi en lui, et en lui *seul*.
 
-Si vous ne l’avez pas encore fait, aujourd’hui est le jour où vous pouvez mettre votre foi en Jésus pour glorifier Dieu, vous nourrir de sa Parole et marcher dans ses voies.
+Si vous ne l’avez pas encore fait, aujourd’hui est le jour où vous pouvez mettre votre foi en Jésus pour gloriﬁer Dieu, vous nourrir de sa Parole et marcher dans ses voies.
 
 
 
