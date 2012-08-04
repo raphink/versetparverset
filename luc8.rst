@@ -216,6 +216,10 @@ Encore un parallèle avec Lazare : « Lazare, notre ami, s’est endormi, mais 
 
 Ce à quoi les disciples ont répondu : « Ah bah, s’il dort alors, tout va bien, » et Jésus a dû répéter : « Il est mort. »
 
+À l’époque, pour des funérailles, on payait des pleureurs professionnels. Même les familles les plus pauvres payaient des pleureurs pour les enterrements. Jaïrus était riche, donc il devait y avoir plusieurs dizaines de personnes payées pour être là, avec des ménéstrels et des joueurs de flute.
+
+Ce sont des gens qui ont l’habitude d’assister à des enterrements, et ils ont probablement tous vu la jeune fille mourrir. Ils savaient qu’elle était morte.
+
 
 Verset 53
 ---------
@@ -224,11 +228,18 @@ Verset 53
 
 Saraï aussi a rit en entendant une promesse du Seigneur (Gn 18.12), mais Dieu tient ses promesses.
 
+Le Nouveau Testament parle souvent de la mort pour le croyant comme d’un sommeil (Jn 11, Actes 7.1, Co 15, 1 Tess 4).
+
 
 Verset 54
 ---------
 
   « Mais il la saisit par la main et dit d’une voix forte : Mon enfant, réveille-toi ! »
+
+Toucher un mort était considéré comme impur. C’est pour cela que dans la parabole du prochain, le prêtre refusait de toucher l’homme blessé.
+
+Jésus, Lui, était prêt à toucher la jeune fille morte, tout comme Il était prêt à toucher des lépreux.
+
 
 Verset 55
 ---------
