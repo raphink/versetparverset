@@ -2,7 +2,7 @@
 Évangile selon Luc, chapitre 9
 ===============================
 
-Continuité de la période de formation des disciples. Au chapitre 8, les disciples on vu la foi à l’œuvre avec Jésus. Ici, ils passent au travaux pratiques par eux-mêmes.
+Continuité de la période de formation des disciples. Au chapitre 8, les disciples ont vu la foi à l’œuvre avec Jésus. Ici, ils passent au travaux pratiques par eux-mêmes.
 
 
 Verset 1
