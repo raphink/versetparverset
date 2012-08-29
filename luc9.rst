@@ -102,5 +102,54 @@ Si vous ne l’avez pas encore fait, vous pouvez faire cela maintenant : repente
 
 Prions.
 
-.. contents:: `Table of contents`
+
+Verset 7 & 8
+------------
+
+  « Hérode le tétrarque entendit parler de tout ce qui se passait, et il ne savait que penser. Car les uns disaient que Jean était ressuscité des morts; d’autres, qu’Elie était apparu; et d’autres, qu’un des anciens prophètes était ressuscité. »
+
+Il s'agit de Hérode Antipas, le fils de Hérode le Grand, qui avait fait décapiter Jean à la demande de sa femme Hérodiade (Mc 6.14-29).
+
+  Au sujet d'Élie, Malachie dit : « Je vous envoie Élie, le prophète, avant que n'arrive le jour du Sᴇɪɢɴᴇᴜʀ, jour grand et redoutable. Il ramènera le cœur des pères vers les ﬁls et le cœur des ﬁls vers leurs pères, de peur que je ne vienne mettre à mal le pays en le frappant d'anathème. » (Ml 3.23)
+
+Les juifs pensaient que ce verset parlaient du Messie. Les disciples de Jésus lui ont demandé ce que ce verset signifiait (Mt 17.10). Il leur a répondu qu'Élie était déjà venu, en la personne de Jean le Baptiseur (11-12). Certains donc pensaient que Jésus était Jean, d'autres qu'il était Élie (attendu comme le Messie).
+
+
+Verset 9
+--------
+
+  « Mais Hérode disait: J’ai fait décapiter Jean; qui donc est celui-ci, dont j’entends dire de telles choses? Et il cherchait à le voir. »
+
+Hérode a fait décapiter Jean sous la pression et se demande si Jésus a un rapport avec lui.
+
+
+Verset 10
+---------
+
+  « Les apôtres, étant de retour, racontèrent à Jésus tout ce qu’ils avaient fait. Il les prit avec lui, et se retira à l’écart, du côté d’une ville appelée Bethsaïda. »
+ 
+Les disciples reviennent de leur mission (Lc 9.1-6). Jésus les prend à l'écart pour faire un « débrieffing ». Après ce temps de mission actif, les disciples avaient besoin de passer du temps seuls avec Jésus. Il est important de prendre du temps de ressourcement avec Dieu.
+
+
+Verset 11
+---------
+ 
+  « Les foules, l’ayant su, le suivirent. Jésus les accueillit, et il leur parlait du royaume de Dieu; il guérit aussi ceux qui avaient besoin d’être guéris. »
+
+Les disciples sont probablement frustrés : ils ont à peine eu le temps de voir Jésus et de lui partager leurs expériences qu'ils sont déjà envahis de monde. Mais Jésus est extrêment flexible. Il est prêt à accueillir les foules même dans le lieu de retraite où il a conduit ses disciples.
+
+Encore une fois, Jésus leur parle du royaume de Dieu, et il guérit *aussi* ceux qui en ont besoin, mais cela vient en second. Le ministère de Jésus est avant tout de dispenser la Parole de Dieu.
+
+
+Verset 12-17
+------------
+
+  « Comme le jour commençait à baisser, les douze s’approchèrent, et lui dirent : Renvoie la foule, afin qu’elle aille dans les villages et dans les campagnes des environs, pour se loger et pour trouver des vivres; car nous sommes ici dans un lieu désert. Jésus leur dit: Donnez-leur vous-mêmes à manger. Mais ils répondirent: Nous n’avons que cinq pains et deux poissons, à moins que nous n’allions nous-mêmes acheter des vivres pour tout ce peuple. Or, il y avait environ cinq mille hommes. Jésus dit à ses disciples: Faites-les asseoir par rangées de cinquante. Ils firent ainsi, ils les firent tous asseoir. Jésus prit les cinq pains et les deux poissons, et, levant les yeux vers le ciel, il les bénit. Puis, il les rompit, et les donna aux disciples, afin qu’ils les distribuent à la foule. Tous mangèrent et furent rassasiés, et l’on emporta douze paniers pleins des morceaux qui restaient. »
+
+Les disciples veulent renvoyer les foules manger et dormir en ville. Ils ne pensent pas avoir de quoi les satisfaire. Mais Jésus leur répond : « Donnez-leur vous-mêmes à manger. » Il s'agit ici d'un miracle de Jésus, mais c'est par les mains des disciples (comme pour les pêches miraculeuses aussi) qu'il est accompli. Quand nous sommes confrontés à un besoin, envoyons-nous les gens vers d'autres ressources, ou laissons-nous Jésus nous dire : « Donne-lui toi-même à manger » ?
+
+« Douze paniers » : Nous sommes toujours en territoire juif. Voir l'autre multiplication des pains, en territoire païen (Mc 8.8).
+
+
+.. contents:: `Sommaire`
 
