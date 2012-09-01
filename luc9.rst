@@ -108,11 +108,15 @@ Verset 7 & 8
 
   « Hérode le tétrarque entendit parler de tout ce qui se passait, et il ne savait que penser. Car les uns disaient que Jean était ressuscité des morts; d’autres, qu’Elie était apparu; et d’autres, qu’un des anciens prophètes était ressuscité. »
 
-Il s'agit de Hérode Antipas, le fils de Hérode le Grand, qui avait fait décapiter Jean à la demande de sa femme Hérodiade (Mc 6.14-29).
+Qui est Jésus? C'est une question cruciale, centrale dans notre foi. Si vous demandez aux gens dans la rue, les athées vous répondront peut-être : « Un mythe ». Les juifs vous diront probablement qu'il était un imposteur, les new age qu'il était un sage ou un philosophe, les musulmans qu'il était un prophète, les témoins de Jéhovah qu'il était l'archange Michael, les mormons qu'il était le frère de Satan… L'identité de Jésus est certainement le point le plus important qui soit concernant le salut des hommes, et la source de toutes les dérives sectaires du christianisme…
 
-  Au sujet d'Élie, Malachie dit : « Je vous envoie Élie, le prophète, avant que n'arrive le jour du Sᴇɪɢɴᴇᴜʀ, jour grand et redoutable. Il ramènera le cœur des pères vers les ﬁls et le cœur des ﬁls vers leurs pères, de peur que je ne vienne mettre à mal le pays en le frappant d'anathème. » (Ml 3.23)
+Les juifs à l'époque de Jésus, et encore aujourd'hui, attendaient le Messie, le sauveur. Les prophéties de l'Ancien Testament (le Tanakh pour les juifs) parlent du Messie et le décrivent. Les juifs pensaient donc savoir comment reconnaître le Messie, et la plupart d'entre eux attendaient un sauveur politique, qui allait les délivrer de l'envahisseur romain. Jésus ne correspondait pas à cette description, et les juifs cherchaient donc à savoir qui il était.
 
-Les juifs pensaient que ce verset parlaient du Messie. Les disciples de Jésus lui ont demandé ce que ce verset signifiait (Mt 17.10). Il leur a répondu qu'Élie était déjà venu, en la personne de Jean le Baptiseur (11-12). Certains donc pensaient que Jésus était Jean, d'autres qu'il était Élie (attendu comme le Messie).
+On nous parle ici de Hérode Antipas, le fils de Hérode le Grand, qui avait fait décapiter Jean à la demande de sa femme Hérodiade (Mc 6.14-29). Au sujet d'Élie, Malachie (Ml 3.23) dit :
+
+  « Je vous envoie Élie, le prophète, avant que n'arrive le jour du SEIGNEUR, jour grand et redoutable. Il ramènera le cœur des pères vers les ﬁls et le cœur des ﬁls vers leurs pères, de peur que je ne vienne mettre à mal le pays en le frappant d'anathème. »
+
+Les juifs pensaient que ce verset parlaient du Messie. Les disciples de Jésus lui ont demandé ce que ce verset signifiait (Mt 17.10). Il leur a répondu qu'Élie était déjà venu, en la personne de Jean le Baptiste (11-12). Certains donc pensaient que Jésus était Jean, d'autres qu'il était Élie (attendu comme le Messie).
 
 
 Verset 9
@@ -120,7 +124,7 @@ Verset 9
 
   « Mais Hérode disait: J’ai fait décapiter Jean; qui donc est celui-ci, dont j’entends dire de telles choses? Et il cherchait à le voir. »
 
-Hérode a fait décapiter Jean sous la pression et se demande si Jésus a un rapport avec lui.
+Hérode a fait décapiter Jean sous la pression et se demande si Jésus est Jean réssuscité. D'après Mathieu (Mt 14.12-13), Hérode vient en fait de faire décapiter Jean à ce moment, et les disciples de Jean viennent l'annoncer à Jésus.
 
 
 Verset 10
@@ -128,7 +132,7 @@ Verset 10
 
   « Les apôtres, étant de retour, racontèrent à Jésus tout ce qu’ils avaient fait. Il les prit avec lui, et se retira à l’écart, du côté d’une ville appelée Bethsaïda. »
  
-Les disciples reviennent de leur mission (Lc 9.1-6). Jésus les prend à l'écart pour faire un « débrieffing ». Après ce temps de mission actif, les disciples avaient besoin de passer du temps seuls avec Jésus. Il est important de prendre du temps de ressourcement avec Dieu.
+Les disciples reviennent de leur mission (Lc 9.1-6). Jésus les prend à l'écart pour faire un « débrieffing ». Après ce temps de mission actif, les disciples avaient besoin de passer du temps seuls avec Jésus. Il est important de prendre du temps de ressourcement avec Dieu. Mathieu nous indique également que cette décision est motivée par l'annonce de la mort de Jean.
 
 
 Verset 11
@@ -138,7 +142,7 @@ Verset 11
 
 Les disciples sont probablement frustrés : ils ont à peine eu le temps de voir Jésus et de lui partager leurs expériences qu'ils sont déjà envahis de monde. Mais Jésus est extrêment flexible. Il est prêt à accueillir les foules même dans le lieu de retraite où il a conduit ses disciples.
 
-Encore une fois, Jésus leur parle du royaume de Dieu, et il guérit *aussi* ceux qui en ont besoin, mais cela vient en second. Le ministère de Jésus est avant tout de dispenser la Parole de Dieu.
+Encore une fois, Jésus leur parle du royaume de Dieu, et il guérit *aussi* ceux qui en ont besoin, mais cela vient en second. Le ministère de Jésus est avant tout d'enseigner la Parole de Dieu.
 
 
 Verset 12-17
@@ -149,6 +153,38 @@ Verset 12-17
 Les disciples veulent renvoyer les foules manger et dormir en ville. Ils ne pensent pas avoir de quoi les satisfaire. Mais Jésus leur répond : « Donnez-leur vous-mêmes à manger. » Il s'agit ici d'un miracle de Jésus, mais c'est par les mains des disciples (comme pour les pêches miraculeuses aussi) qu'il est accompli. Quand nous sommes confrontés à un besoin, envoyons-nous les gens vers d'autres ressources, ou laissons-nous Jésus nous dire : « Donne-lui toi-même à manger » ?
 
 « Douze paniers » : Nous sommes toujours en territoire juif. Voir l'autre multiplication des pains, en territoire païen (Mc 8.8).
+
+On en a parlé au début du chapitre 9 : ce que Jésus fait en premier est d'enseigner, de partager la Bonne Nouvelle. Les guérisons et les miracles ne sont là que comme des signes de qui il est. Ils sont là pour indiquer qu'il est le Messie. Tous ces signes interpellent les disciples pour leur faire comprendre, petit à petit, la vraie identité de Jésus.
+
+
+Verset 18-19
+-------------
+
+  « Un jour qu'il priait à l'écart et que les disciples étaient réunis auprès de lui, il leur demande: Au dire des foules, qui suis-je? Il répondirent: Pour les uns, Jean le Baptiseur; pour d'autres, Élie; pour d'autres encore, un des anciens prophètes qui s'est relevé. »
+
+La même question qu'Hérode se posait — et qui semble tarauder tous les juifs qui croisent Jésus — est ici posée par Jésus lui-même à ses disciples. La réponse est identique : ils se réfèrent à Malachie et pensent que Jésus est soit Jean ressuscité (ce qui est surprenant sachant que certains avaient vu Jean et Jésus ensemble à son baptème, André était l'un d'entre eux, cf. Jn 1.40).
+
+
+Verset 20
+---------
+
+  « — Et pour vous, leur dit-il, qui suis-je? Pierre répondit: Le Christ de Dieu. Il les rabroua, en leur enjoignant de ne dire cela à personne, ajoutant qu'il fallait que le Fils de l'homme souffre beaucoup, qu'il soit rejeté par les anciens, les grands prêtres et les scribes, qu'il soit tué et qu'il se réveille le troisième jour. »
+
+Jésus ne veut pas se contenter de ce que « les gens » disent. Il veut savoir ce que ses disciples, les gens qui le suivent et vivent avec lui, pensent de lui. Pierre lui répond qu'il est le Messie, le Christ, le sauveur. Jean nous indique dans son Évangile que André avait reconnu Jésus comme le Christ dès le départ (Jn 1.41) : « Il trouve d'abord son propre frère, Simon, et il lui dit : Nous avons trouvé le Messie – ce qui se traduit: le Christ. » Pierre a reconnu ici en Jésus le Messie attendu par les juifs.
+
+Ce passage nous est relaté dans les quatre Évangiles. Dans Mathieu, Pierre précise : « Toi, tu es le Christ, le Fils du Dieu vivant » (Mt 16.16).
+
+Les disciples savent maintenant que Jésus est le Christ, le Fils de Dieu. Pour autant, ils ne sont pas au bout de leurs surprises. Il s'attendent encore à le voir couronné roi des juifs sur terre et chasser l'envahisseur romain. Les événements qui vont suivre vont les surprendre et éprouver leur foi.
+
+
+L'écrivain anglais C.S. Lewis (auteur de la série *Narnia*) a écrit dans son livre *Les fondements du christianisme* :
+
+  « J'essaie ici d'empêcher que quiconque dise la chose insensée que les gens disent souvent à Son sujet : Je suis prêt à acceter Jésus comme un grand moraliste, mais je n'accepte pas qu'il se déclare comme Dieu. C'est la chose à ne pas dire. Un homme, qui n'était qu'un homme, et qui aurait fait les mêmes déclarations que Jésus, ne peut pas être un grand moraliste. Il serait soit un lunatique, à placer au même niveau qu’un homme qui se croit être un œuf poché — ou bien il serait le Démon de l'Enfer. Vous devez faire un choix. Soit cet homme était, et est, le Fils de Dieu, ou bien il est un aliéné ou même pire encore. Si c’est un fou, vous pouvez le faire taire, si c’est un démon vous pouvez lui cracher dessus et le tuer. Ou bien vous pouvez vous jeter à Ses pieds, et l’appeler Seigneur et Dieu. Mais cessons donc tout ce non-sens condescendant qui nous le présente comme un grand moraliste. Il ne nous a pas laissé cette possibilité. Cela n’était pas du tout Son intention. »
+
+Qui est Jésus pour vous? C'est la question la plus essentielle de votre vie. Pierre a répondu à cette question : « Tu es le Christ, le Fils du Dieu vivant. » Jésus nous pose à chacun cette question : « Et toi, qui dis-tu que je suis? » De notre réponse dépend toute notre vie, aujourd'hui et pour l'éternité. Si nous rejetons la divinité de Jésus, si nous le renions, il nous reniera aussi. Mais si nous l'acceptions comme Messie, sauveur, Fils de Dieu, avec la puissance de pardonner nos péchés par sa mort à la croix et de nous donner la vie par sa résurrection, et que nous nous repentons de nos péchés pour mourrir avec Lui, l'appeler Seigneur de nos vies et Lui confier nos vies, alors nous aurons la vie en abondance, aujourd'hui et pour l'éternité:
+
+  « Je vous le dis, quiconque se reconnaît en moi devant les gens, les Fils de l'homme se reconnaîtra aussi en lui devant les anges de Dieu; mais celui qui m'aura renié devant les gens sera renié devant les anges de Dieu. » (Lc 12.8).
+
 
 
 .. contents:: `Sommaire`
