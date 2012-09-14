@@ -165,8 +165,8 @@ Verset 18-19
 La même question qu'Hérode se posait — et qui semble tarauder tous les juifs qui croisent Jésus — est ici posée par Jésus lui-même à ses disciples. La réponse est identique : ils se réfèrent à Malachie et pensent que Jésus est soit Jean ressuscité (ce qui est surprenant sachant que certains avaient vu Jean et Jésus ensemble à son baptème, André était l'un d'entre eux, cf. Jn 1.40).
 
 
-Verset 20
----------
+Verset 20-22
+------------
 
   « — Et pour vous, leur dit-il, qui suis-je? Pierre répondit: Le Christ de Dieu. Il les rabroua, en leur enjoignant de ne dire cela à personne, ajoutant qu'il fallait que le Fils de l'homme souffre beaucoup, qu'il soit rejeté par les anciens, les grands prêtres et les scribes, qu'il soit tué et qu'il se réveille le troisième jour. »
 
@@ -183,7 +183,174 @@ L'écrivain anglais C.S. Lewis (auteur de la série *Narnia*) a écrit dans son 
 
 Qui est Jésus pour vous? C'est la question la plus essentielle de votre vie. Pierre a répondu à cette question : « Tu es le Christ, le Fils du Dieu vivant. » Jésus nous pose à chacun cette question : « Et toi, qui dis-tu que je suis? » De notre réponse dépend toute notre vie, aujourd'hui et pour l'éternité. Si nous rejetons la divinité de Jésus, si nous le renions, il nous reniera aussi. Mais si nous l'acceptions comme Messie, sauveur, Fils de Dieu, avec la puissance de pardonner nos péchés par sa mort à la croix et de nous donner la vie par sa résurrection, et que nous nous repentons de nos péchés pour mourrir avec Lui, l'appeler Seigneur de nos vies et Lui confier nos vies, alors nous aurons la vie en abondance, aujourd'hui et pour l'éternité:
 
-  « Je vous le dis, quiconque se reconnaît en moi devant les gens, les Fils de l'homme se reconnaîtra aussi en lui devant les anges de Dieu; mais celui qui m'aura renié devant les gens sera renié devant les anges de Dieu. » (Lc 12.8).
+  « Je vous le dis, quiconque se reconnaît en moi devant les gens, les Fils de l'homme se reconnaîtra aussi en lui devant les anges de Dieu; mais celui qui m'aura renié devant les gens sera renié devant les anges de Dieu. » (Lc 12.8)
+
+
+
+Versets 23-24
+-------------
+
+Nous avons vu la dernière fois l'identité de Jésus, qu'il est le Messie (le Christ) attendu par les Juifs depuis des siècles, et le Fils de Dieu. Nous allons maintenant parler des conséquences de cette identité sur nos vies, et sur celle de Jésus lui-même.
+
+Au verset 22, Jésus a commencé à parler de ça, en disant à ses disciples que le Fils de l'homme devrait souffir beaucoup, être rejeté et tué, et enfin ressusciter des morts.
+
+  « Il disait à tous: Si quelqu'un veut venir à ma suite, qu'il se renie lui-même, qu'il se charge chaque jour de sa croix et qu'il me suive. Car quiconque voudra sauver sa vie la perdra, mais quiconque perdra sa vie à cause de moi la sauvera. »
+
+Quand Jésus parle de prendre sa croix, il ne s'agit pas de mettre une petite croix autour de son cou pour dire qu'on est chrétien, il s'agit bien de porter un instrument de torture lourd et encombrant jusqu'au lieu du suplice. Le mot utilisé pour croix n'est pas ambigu. Ce que dit Jésus est choquant. Il suggère de nous sommes tous coupables, et que nous devons être prêts à souffrir chaque jour pour le suivre. Plusieurs disciples (dont Pierre) seront d'ailleurs eux-mêmes crucifiés.
+
+C'est radical, révolutionnaire, inédit: pour sauver sa vie, il faut la perdre. Il faut être prêt à tout laisser pour suivre Jésus.
+
+
+Verset 25
+---------
+
+  « Et à quoi sert-il à un être humain de gagner le monde entier, s'il se perd ou se ruine lui-même? »
+
+Jésus insiste: si vous tentez de sauver votre vie, de « gagner » votre vie, de « réussir » votre vie, vous risquez de la perdre. Et à quoi cela sert-il de faire des efforts pour « réussir » sa vie, si c'est pour la perdre pour toujours? Il faut être prêt à perdre sa vie aujourd'hui pour Jésus, afin de gagner la vie éternelle, celle qui compte vraiment.
+ 
+
+Verset 26
+---------
+
+  « En effet, quiconque aura honte de moi et de mes paroles, le Fils de l'homme aura honte de lui quand il viendra dans sa gloire, dans la gloire du Père et des saints anges. »
+
+Encore ce qu'on a lu la semaine dernière:
+
+  « Je vous le dis, quiconque se reconnaît en moi devant les gens, les Fils de l'homme se reconnaîtra aussi en lui devant les anges de Dieu; mais celui qui m'aura renié devant les gens sera renié devant les anges de Dieu. » (Lc 12.8)
+
+Voilà ce que signifie perdre sa vie: être renié par le Fils lors du jugement devant les anges de Dieu. Si vous avez honte du Fils, si vous n'êtes pas prêts à lui obéir, à lui confier votre vie, à le suivre inconditionnellement, alors il aura honte de vous et vous reniera, et vous aurez tout perdu, car tous les gains de la vie présente ne pourrons pas compenser les pertes éternelles.
+
+  
+Verset 27
+---------
+
+  « Et je vous le dis, en vérité, quelques-uns de ceux qui se tiennent ici ne goûteront pas la mort avant d'avoir vu le règne de Dieu. »
+
+Et puisqu'on parle de gloire éternelle, Jésus veut en donner un avant goût à certains, afin qu'ils comprennent ce qui les attend à la fin du voyage.
+
+Il allait environ se passer une semaine avant que cela n'arrive…
+
+
+Verset 28
+---------
+
+  « Huit jours environ après ces paroles, il prit avec lui Pierre, Jean et Jacques, et il monta sur la montagne pour prier. »
+
+Trois des 4 principaux disciples (André n'est pas venu). Il monte sur la montagne pour prier, ce qui est courant et précède souvent des moments importants (par ex. au v. 18, quand il demande à ses disciples qui Il est).
+
+
+Verset 29
+---------
+
+  « Pendant qu'il priait, l'aspect de son visage changea, et ses vêtements devinrent d'une blancheur éclatante. »
+
+Et c'est souvent pendant qu'Il prie que des choses intéressantes se passent.
+
+Passage appelé la transfiguration, où Jésus revêt la gloire de Dieu.
+
+
+Versets 30-31
+-------------
+
+  « Il y avait là deux hommes qui s'entretenaient avec lui: c'étaient Moïse et Élie qui, apparaissant dans la gloire, parlaient de son départ, qui allait s'accomplir à Jérusalem. »
+
+Départ = *exodos* = décès, fin de carrière, fin de mission. Intéressant pour Moïse de parler de l'*exodos* de Jésus.
+
+
+Verset 32
+---------
+
+  « Pierre et ses compagnons étaient accablés de sommeil. Réveillés, ils virent sa gloire et les deux hommes qui se tenaient avec lui. »
+
+Bien souvent, Jésus emmène ses disciples dans la montagne pour prier. Est-ce pour prier ensemble? On peut se le demander, car souvent, les disciples semblent occupés à autre chose:
+
+  v.18: « Un jour qu'*il priait* à l'écart et que les disciples *étaient réunis auprès de lui*, il leur demanda… »
+
+  6.12: « En ces jours-là, Jésus s'en alla prier dans la montagne; il passa toute la nuit à prier Dieu. Quand le jour parut, il appela ses disciples et en choisit douze, … »
+  
+  22.39-46: les disciples dorment pendant que Jésus prie.
+
+Bien souvent, quand Jésus prie, pendant des heures, voire des jours, les disciples sont occupés à autre chose, et souvent, ils dorment. On ne les voit pas vraiment prier. Ils demandent même à Jésus comment prier (Luc 11.2-4).
+
+Cela m'encourage car j'ai souvent du mal à prier aussi. Jésus a démontré l'importance de la prière. S'il avait besoin de tant prier, alors nous aussi! Soyons présents dans la prière avec Jésus, c'est dans ses moments là qu'il nous dit et nous demande des choses importantes.
+
+
+Verset 33
+---------
+
+  « Au moment où ces hommes se séparaient de Jésus, Pierre lui dit: Maître, il est bon que nous soyons ici; dressons trois tentes, une pour toi, une pour Moïse et une pour Élie. Il ne savait pas ce qu'il disait. »
+
+Jésus est vu en gloire en présence de deux grands hommes de Dieu, parmi les plus importants pour les Juifs: Moïse, qui est appelé l'ami de Dieu et qui a reçu la Loi, et Élie, un prophète qui a eu un ministère puissant avec de nombreux miracles, dont au moins une résurrection. Pierre propose de préparer trois tentes pour Jésus et les deux prophètes, les mettant sur un pied d'égalité. Mais il oublie (car il le sait, cf. Mathieu 16.16) que Jésus est au-dessus des prophètes.
+
+
+Versets 34-35
+-------------
+
+  « Comme il parlait ainsi, une nuée survint et les couvrit de son ombre; ils furent saisis de crainte, tandis qu'ils entraient dans la nuée. Et de la nuée survint une voix: Celui-ci est mon Fils, celui qui a été choisi. Écoutez-le! »
+
+La nuée, c'est la présence de Dieu:
+
+  Ex 13.21: « le jour dans une colonne de nuée pour les conduire »
+
+  Ex 14.20: « elle était nuée et ténèbres, et elle éclairait la nuit »
+
+  Ex 40.38: « Le jour, la nuée du Seigneur était sur la Demeure, la tente du Témoignage »
+
+  Nb 11.25: « Le Seigneur descendit dans la nuée et lui parla »
+
+  I R 9.10: « Les prêtres ne pouvaient plus se tenir là pour officier, à cause de la nuée; car la gloire du Seigneur emplissait la maison du Seigneur. »
+
+
+Il y a aussi un lien clair ici avec Moïse, qui a vécu ces événements liés à la nuée de Dieu. De la nuée, de la présence de Dieu, Dieu parle et dit: « Celui-ci est mon Fils, celui qui a été choisi. » C'est la deuxième fois, avec le baptème de Jésus (3.22):
+
+  « Et il survint une voix du ciel: Tu es mon Fils bien-aimé; c'est en toi que j'ai pris plaisir. »
+ 
+« Celui-ci est mon Fils » suggère « mon Fils unique engendré »
+
+Dieu montre la gloire du Royaume, et confirme l'identité de Jésus. Il ajoute aussi: « Écoutez-le! » Jésus, nous dit Jean, est la Parole vivante de Dieu. Quand il parle, c'est Dieu qui parle. Nous avons parlé les dernières fois du ministère de Jésus: enseigner et proclamer le Royaume de Dieu. Il faut donc l'écouter. 
+
+
+Verset 36
+---------
+
+  « Quand la voix se fit entendre, Jésus était seul. Les disciples gardèrent le silence et ne racontèrent rien à personne, en ces jours-là, de ce qu'ils avaient vu. »
+
+
+Moïse et Élie était parti au moment où Dieu proclamait l'identité de Jésus et son autorité. C'est là un témoignage fort pour les disciples, qu'ils vont garder dans leur cœur sans le partager pendant longtemps, et qui va les encourager dans le ministère difficile qui les attend. Pierre sera crucifié la tête en bas sur une croix en forme de X; Jean sera mis dans l'huile bouillante, puis déporté sur l'île de Patmos; Jacques sera décapité à Jérusalem.
+
+
+Versets 37-39
+-------------
+
+  « Le lendemain, lorsqu'ils furent descendus de la montagne, une grande foule vint à sa rencontre. Du milieu de la foule, un homme s'écria: Maître, je t'en prie, porte les regards sur mon fils, car c'est mon fils unique. Un esprit s'empare de lui, et tout à coup il pousse des cris, il le secoue violemment, le fait écumer et le quitte à grand-peine, après l'avoir tout meurtri.
+
+
+Les foules attendent toujours que Jésus sorte de ses retraites pour l'aborder. Un homme arrive et lui demande d'aider son fils, son « fils unique », selon l'exacte même formulation utilisée par Dieu pour qualifier Jésus au verset 35.
+
+
+Verset 40-42
+------------
+
+  « J'ai prié tes disciples de le chasser, et ils n'ont pas pu. Jésus dit: Génération sans foi et perverse, jusqu'à quand serai-je avec vous et vous supporterai-je? Amène ton fils ici. Comme il approchait, le démon le jeta à terre et le secoua violemment. Mais Jésus rabroua l'esprit impur, guérit l'enfant et le rendit à son père. Et tous furent ébahis de la grandeur de Dieu. »
+
+
+Jésus a donné à ses disciples l'autorité sur les démons, mais le problème ici est un manque de foi (verset 40). Dans le passage parallèle dans Mathieu 17, Jésus leur explique: « C'est parce que vous avez peu de foi. » et il précise dans Marc 14.23: « Tout est possible pour celui qui croit. » Il explique alors aux disciples: « Cette espèce-là ne peut sortir que par la prière. »
+
+Les dons que nous avons doivent être entrenus par la prière, qui approfondit notre foi.
+
+
+Versets 43-44
+-------------
+
+  « Tandis que tous s'étonnaient de tout ce qu'il faisait, il dit à ses disciples: Quand à vous, prêtez bien l'oreille à ces paroles: le Fils de l'homme va être livré aux humains. »
+
+« … prêtez-bien l'oreille » ⇒> « Écoutez-le! »
+
+Jésus annonce à nouveau sa mort, comme au verset 22. Il parle de l'accomplissement des prophéties à son sujet, mais les disciples ne peuvent pas comprendre, car ils croient que le Messie va être couronné en gloire à sa première venue. Voir aussi 18.31.
+
+Jésus annonce à nouveau qu'il va lui-même porter sa croix et mourrir, alors qu'il a dit que les disciples devaient le faire pour le suivre.
+
+Il a montré qu'il était le Messie, le Fils de Dieu, et a expliqué qu'il devait mourrir pour les péchés du monde afin de nous réconcilier avec le Père. Il a expliqué comment nous pouvions le suivre, en laissant tout sans honte de le suivre, et en portant nous aussi notre croix chaque jour, pour être « crucifié[s] avec le [lui] » (Ga 2.19)
 
 
 
