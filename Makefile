@@ -21,8 +21,9 @@ kindle: $(DOCUMENT)-to-kindle
 %.epub: %.html
 	ebook-convert $< $@ $(EBOOK_CONVERT_OPTS)
 
-%.mobi: %.html
-	ebook-convert $< $@ $(EBOOK_CONVERT_OPTS)
+%.mobi: %.epub
+	#ebook-convert $< $@ $(EBOOK_CONVERT_OPTS)
+	kindlegen $<
 
 %-to-kindle: %.mobi
 	# cp -f doesn't work, we need to remove
