@@ -353,6 +353,55 @@ Jésus annonce à nouveau qu'il va lui-même porter sa croix et mourrir, alors q
 Il a montré qu'il était le Messie, le Fils de Dieu, et a expliqué qu'il devait mourrir pour les péchés du monde afin de nous réconcilier avec le Père. Il a expliqué comment nous pouvions le suivre, en laissant tout sans honte de le suivre, et en portant nous aussi notre croix chaque jour, pour être « crucifié[s] avec le [lui] » (Ga 2.19)
 
 
+Verset 45
+---------
+
+  « Mais les disciples ne comprenaient pas cette parole; elle était voilée pour eux, afin qu'ils n'en saisissent pas le sens; et ils avaient peur de l'interroger à ce sujet. »
+
+
+Verset 46-48
+------------
+
+  « Ils se mirent à raisonner entre eux pour savoir qui, parmi eux, était le plus grand. Jésus, qui connaissait leur raisonnement, prit un enfant, le plaça près de lui, et leur dit: Quiconque acceuille cet enfant en mon nom m'acceuille moi-même; et quiconque m'acceuille acceuille celui qui m'a envoyé. En effet, celui qui est le plus petit parmi vous tous, c'est celui-là qui est grand. »
+
+
+Verset 49-50
+------------
+
+  « Jean dit alors: Maître, nous avons vu un homme qui chasse des démons en ton nom; et nous avons cherché à l'en empêcher, parce qu'il ne te suit pas avec nous. Jésus lui répondit: Ne l'en empêchez pas; en effet, qui n'est pas contre vous est pour vous. »
+
+
+On a plutôt l'habitude de dire : « Qui n'est pas pour nous est contre nous. »
+
+
+Versets 51-53
+-------------
+
+  « Comme arrivaient les jours où il allait être enlevé, il prit la ferme décision de se rendre à Jérusalem et il envoya devant lui des messagers. Ceux-ci se mirent en route et entrèrent dans un village de Samaritains, afin de faire des préparatifs pour lui. Mais on ne l'acceuillit pas, parce qu'il se dirigeait vers Jérusalem. »
+
+
+Versets 54-56
+-------------
+
+  « Quand ils virent cela, les disciples Jacques et Jean dirent: Seigneur, veux-tu que nous disions au *feu* de *descendre du ciel pour les détruire ?* Il se tourna vers eux et les rabroua. Et ils allèrent dans un autre village. »
+
+
+Versets 57-58
+-------------
+
+  « Pendant qu'il était en chemin, quelqu'un lui dit: Je te suivrai partout où tu iras. Jésus lui dit: Les renards ont des tanières, les oiseaux du ciel ont des nids, mais le Fils de l'homme n'a pas où poser sa tête. »
+ 
+Versets 59-60
+-------------
+
+  « Il dit à un autre: Suis-moi. Celui-ci répondit: Seigneur, permets-moi d'aller d'abord ensevelir mon père. Il lui dit: Laisse les morts ensevelir leurs morts; toi, va-t'en annoncer le règne de Dieu.
+
+
+Versets 61-62
+-------------
+
+  « Un autre dit: Je te suivrai, Seigneur, mais permets-moi d'aller d'abord prendre congé de ceux de ma maison. Jésus lui dit: Quiconque met la main à la charrue et regarde en arrière n'est pas bon pour le royaume de Dieu. »
+
 
 .. contents:: `Sommaire`
 
