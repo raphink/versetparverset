@@ -5,6 +5,10 @@
 Continuité de la période de formation des disciples. Au chapitre 8, les disciples ont vu la foi à l’œuvre avec Jésus. Ici, ils passent au travaux pratiques par eux-mêmes.
 
 
+La Bonne Nouvelle (Lc 9.1-6)
+============================
+
+
 Verset 1
 --------
 
@@ -103,6 +107,9 @@ Si vous ne l’avez pas encore fait, vous pouvez faire cela maintenant : repente
 Prions.
 
 
+Qui est Jésus? (Lc 7-22)
+========================
+
 Verset 7 & 8
 ------------
 
@@ -186,6 +193,9 @@ Qui est Jésus pour vous? C'est la question la plus essentielle de votre vie. Pi
   « Je vous le dis, quiconque se reconnaît en moi devant les gens, les Fils de l'homme se reconnaîtra aussi en lui devant les anges de Dieu; mais celui qui m'aura renié devant les gens sera renié devant les anges de Dieu. » (Lc 12.8)
 
 
+
+Les conséquences de l'identité de Jésus (Lc 9.23-24)
+====================================================
 
 Versets 23-24
 -------------
@@ -353,6 +363,9 @@ Jésus annonce à nouveau qu'il va lui-même porter sa croix et mourrir, alors q
 Il a montré qu'il était le Messie, le Fils de Dieu, et a expliqué qu'il devait mourrir pour les péchés du monde afin de nous réconcilier avec le Père. Il a expliqué comment nous pouvions le suivre, en laissant tout sans honte de le suivre, et en portant nous aussi notre croix chaque jour, pour être « crucifié[s] avec le [lui] » (Ga 2.19)
 
 
+Sur le royaume de Dieu (Lc 9.45-62)
+===================================
+
 Verset 45
 ---------
 
@@ -410,7 +423,7 @@ En parlant de Satan, Jésus a dit:
 
   « Tout royaume divisé contre lui-même va à sa ruine; les maisons y tombent les unes sur les autres. » (Lc 11.17b)
 
-Prenons garde de ne pas trop juger nos frères, car ils font partie du même royaume et que ce royaume ne peut pas être divisé:
+Prenons garde de ne pas juger nos frères, car ils font partie du même royaume et que ce royaume ne peut pas être divisé:
 
   « En effet, comme le corps est un, tout en ayant une multitude de parties, et comme toutes les parties du corps, en dépit de leur multitude, ne sont qu'un seul corps, ainsi en est-il du Christ. […] Ainsi le corps n'est pas une seule partie, mais une multitude. Si le pied disait: “Parce que je ne suis pas une main, je ne fais pas partie du corps”, il n'en ferait pas moins partie du corps. Et si l'oreille disait: “Parce que je ne suis pas un œil, je ne fais pas partie du corps”, elle n'en ferait pas moins partie du corps. Si tout le corps était œil, où serait l'ouïe? S'il était tout ouïe, où serait l'odorat? […] Maintenant donc il y a une multitude de parties et un seul corps. » (I Co 12.12,14-17,20)
 
