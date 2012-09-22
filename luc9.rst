@@ -356,7 +356,25 @@ Il a montré qu'il était le Messie, le Fils de Dieu, et a expliqué qu'il devai
 Verset 45
 ---------
 
+Après l'épisode de l'enfant possédé que les disciples ne pouvaient pas guérir, Jésus leur annoncé à nouveau sa mort.
+
   « Mais les disciples ne comprenaient pas cette parole; elle était voilée pour eux, afin qu'ils n'en saisissent pas le sens; et ils avaient peur de l'interroger à ce sujet. »
+
+Les disciples ne peuvent pas comprendre ce message. Ils croient encore qu'il n'y a qu'une seule venue du Messie, et que Jésus va être couronné roi à Jérusalem.
+
+Souvent, le message de Jésus était voilé aux gens. Il a dit a ses disciples que c'était la raison pour laquelle il parlait en paraboles:
+
+  « À vous, il a été donné de connaître les mystères du règne de Dieu; mais pour les autres, cela leur est dit en paraboles, de sorte qu'en voyant ils ne voient rien, et qu'en entendant ils ne comprennent rien. » (Lc 8.10)
+
+Il y a au moins deux raisons pour que Jésus parle en paraboles: le libre arbitre et la préparation des cœurs à ce qui va s'accomplir.
+
+Le libre arbitre: Dieu nous laisse le choix de croire en Lui et de Le suivre. Jésus aurait eu moyen de parle de telle sorte qu'il n'y ait pas d'autre choix que de croire, mais alors il n'y aurait pas eu de libre arbitre. Il fallait laisser suffisamment de place pour la foi. Certains disent: « Si je voyais Dieu, alors je croirais qu'Il existe. » Non! S'ils voyaient Dieu, alors ils *sauraient* qu'Il existe. 
+
+  « Or la foi, c'est la réalité de ce qu'on espère [une ferme assurrance des choses qu'on espère], l'attestation de choses qu'on ne voit pas. » (He 11.1)
+
+La préparation des cœurs: Jésus plante des enseignements dans les cœurs de ses disciples. Ils ne comprennent pas, mais cela les prépare pour ce qui va venir. Jésus leur parle plusieurs fois de l'accomplissement des prophéties concernant sa crucifixion, sa mort et sa résurrection. Après ces événements, ils se rappelleront des enseignements de Jésus et comprendront alors le sens de ce qu'Il leur a dit.
+
+La majorité des paraboles de Jésus concerne le royaume de Dieu: ce qu'il est, comment y entrer, etc. C'est ce que Jésus a déclaré être venu faire: annoncer que le royaume de Dieu s'est approché, et qu'il faut se repentir et croire en la Bonne Nouvelle. Dans le passage que nous allons étudier jusqu'à la fin du chapitre 9, Jésus nous parle du royaume de Dieu.
 
 
 Verset 46-48
@@ -364,14 +382,38 @@ Verset 46-48
 
   « Ils se mirent à raisonner entre eux pour savoir qui, parmi eux, était le plus grand. Jésus, qui connaissait leur raisonnement, prit un enfant, le plaça près de lui, et leur dit: Quiconque acceuille cet enfant en mon nom m'acceuille moi-même; et quiconque m'acceuille acceuille celui qui m'a envoyé. En effet, celui qui est le plus petit parmi vous tous, c'est celui-là qui est grand. »
 
+Juste après un épisode où les disciples n'ont pas pu guérir un enfant possédé, ils se demandent qui d'entre eux est le plus grand (ou le moins petit). Quand nous cherchons à nous comparer entre nous, nous oublions la grandeur et la sainteté de Dieu. Face à Dieu, il n'y a pas de comparaison possible.
+
+Les disciples parlent de qui est le plus grand sur terre, mais Jésus, qui sait de quoi ils parlent, veut leur enseigner qui est le plus grand dans le royaume de Dieu, et leur parle des enfants. Il leur explique que celui qui est le plus grand est celui qui est le plus petit, celui qui acceuille Jésus comme un enfant, avec une foi simple et sans détours. C'est un message qu'Il répètera plus tard au chapitre 18:
+
+  « *Amen*, je vous le dis, quiconque n'acceuillera pas le royaume de Dieu comme un enfant n'y entrera jamais. » (Lc 18.17)
+
+Nous pensons que les enfants doivent grandir, que l'âge adulte est l'aboutissement et qu'il est bon de ne pas rester enfant. Jésus nous encourage à garder une foi d'enfant pour entrer dans le royaume de Dieu.
+
+Est-ce que ça veut dire qu'on doit se comporter comme des enfants dans la foi? Non. Paul nous met en garde de rester des « bébé chrétiens »:
+
+  « Quant à moi, mes frères, ce n'est pas comme à des êtres spirituels que j'ai pu vous parler, mais comme à des êtres charnels, comme à des tout-petits dans le Christ. Je vous ai donné du lait; non pas de la nourriture solide, car vous n'auriez pas pu la supporter; d'ailleurs, maintenant même vous ne le pourriez pas parce que vous êtes encore charnels. » (I Co 3.1-2)
+
+Il nous faut garder une foi d'enfant, mais grandir tout de même dans la foi, devenir des chrétiens « adultes », mûrs dans notre foi.
+
 
 Verset 49-50
 ------------
 
   « Jean dit alors: Maître, nous avons vu un homme qui chasse des démons en ton nom; et nous avons cherché à l'en empêcher, parce qu'il ne te suit pas avec nous. Jésus lui répondit: Ne l'en empêchez pas; en effet, qui n'est pas contre vous est pour vous. »
 
+De toute évidence, les disciples ont été vexés de ne pas avoir pu guérir cet enfant possédé. Après s'être demandé qui était le plus grand (ou le moins petit) parmi eux, ils font preuve de jalousie face à une personne qui chasse les démons au nom de Jésus.
 
-On a plutôt l'habitude de dire : « Qui n'est pas pour nous est contre nous. »
+On a plutôt l'habitude de dire : « Qui n'est pas pour nous est contre nous », mais Jésus nous dit que quiconque n'est pas contre nous est pour nous. Il n'y a pas de position neutre face au royaume de Dieu, on est soit dedans, soit dehors, soit pour, soit contre. Il est donc important d'être certain d'être du bon côté. 
+
+En parlant de Satan, Jésus a dit:
+
+  « Tout royaume divisé contre lui-même va à sa ruine; les maisons y tombent les unes sur les autres. » (Lc 11.17b)
+
+Prenons garde de ne pas trop juger nos frères, car ils font partie du même royaume et que ce royaume ne peut pas être divisé:
+
+  « En effet, comme le corps est un, tout en ayant une multitude de parties, et comme toutes les parties du corps, en dépit de leur multitude, ne sont qu'un seul corps, ainsi en est-il du Christ. […] Ainsi le corps n'est pas une seule partie, mais une multitude. Si le pied disait: “Parce que je ne suis pas une main, je ne fais pas partie du corps”, il n'en ferait pas moins partie du corps. Et si l'oreille disait: “Parce que je ne suis pas un œil, je ne fais pas partie du corps”, elle n'en ferait pas moins partie du corps. Si tout le corps était œil, où serait l'ouïe? S'il était tout ouïe, où serait l'odorat? […] Maintenant donc il y a une multitude de parties et un seul corps. » (I Co 12.12,14-17,20)
+
 
 
 Versets 51-53
@@ -379,28 +421,55 @@ Versets 51-53
 
   « Comme arrivaient les jours où il allait être enlevé, il prit la ferme décision de se rendre à Jérusalem et il envoya devant lui des messagers. Ceux-ci se mirent en route et entrèrent dans un village de Samaritains, afin de faire des préparatifs pour lui. Mais on ne l'acceuillit pas, parce qu'il se dirigeait vers Jérusalem. »
 
+Jésus se met en route vers Jérusalem, car Il sait que c'est là qu'il doit être livré et mourrir (« être enlevé »).
+
+Dans un village de Samaritains, il aurait été logique qu'on ne l'acceuille pas parce qu'Il était Juif, mais c'est parce qu'Il allait vers Jérusalem qu'Il n'a pas été acceuilli. Parfois, ce n'est pas ce que nous sommes qui suscite le rejet, mais où nous allons, dans quelle direction nos vies sont orientées. Si nous allons vers Jésus, vers le royaume, alors nous allons à contre-courant du reste du monde, et cela peut susciter le rejet. 
+
 
 Versets 54-56
 -------------
 
-  « Quand ils virent cela, les disciples Jacques et Jean dirent: Seigneur, veux-tu que nous disions au *feu* de *descendre du ciel pour les détruire ?* Il se tourna vers eux et les rabroua. Et ils allèrent dans un autre village. »
+  « Quand ils virent cela, les disciples Jacques et Jean dirent: Seigneur, veux-tu que nous disions au *feu* de *descendre du ciel pour les détruire ?* Il se tourna vers eux et les rabroua [et il leur dit: Vous ne savez pas de quel esprit vous êtes, car le Fils de l'homme n'est pas venu pour perdre des vies d'hommes, mais pour les sauver]. Et ils allèrent dans un autre village. »
+
+Après l'épisode précédent de l'homme qui chassait les démons au nom de Jésus, on voit encore la propention des disciples à juger ceux qui ne font pas partie de leur groupe. Un ministère de jugement n'est pas très compliqué. Si je dis: « Tu ne pries pas assez », qui va dire le contraire? C'est facile d'accuser et d'appeler le feu du ciel sur les pécheurs, mais en faisant cela, on ne fait que les brûler, les détruire. Ce n'est pas ce que fais Jésus. Ésaïe a prophétisé au sujet du Messie:
+
+  « Il ne criera pas, il n'élèvera pas la voix, il ne se fera pas entendre dans les rues. Il ne brisera pas le roseau qui ploie, il n'éteindra pas la mèche qui vacille; il imposera loyalement l'équité. » (Es 42.2-3)
+
+Quand notre flamme vacille, Jésus ne dit pas: « Ah, tu vacilles! » avant de l'éteindre de son pied. Il ravive notre flamme au contraire, il nous sauve.
+
+Jésus va changer nos cœurs quand nous le suivons. Jean, ce disciple qui voulait appeler le feu du ciel sur les Samaritains, est devenu plus tard celui qu'on appelle l'apôtre de l'amour. Il a été changé par Jésus.
 
 
 Versets 57-58
 -------------
 
   « Pendant qu'il était en chemin, quelqu'un lui dit: Je te suivrai partout où tu iras. Jésus lui dit: Les renards ont des tanières, les oiseaux du ciel ont des nids, mais le Fils de l'homme n'a pas où poser sa tête. »
+
+Jésus met en garde cet homme de ce qui l'attend s'il veut Le suivre. Les richesses matérielles ne sont pas au programme. Jésus n'a jamais promis la prospérité matérielle, seulement que Dieu allait prendre soin de nous, même dans l'adversité. Si la prospérité dépendait de notre spiritualité, alors Jésus n'était certainement pas spirituel. Lorsque vous décidez de suivre Jésus complètement, vous lui confiez votre confort matériel. Il est possible que Dieu vous donne en abondance, mais il n'y a aucune certitude que cela va arriver. Reposez-vous en Dieu pour tout ce dont vous avez besoin.
+
  
 Versets 59-60
 -------------
 
-  « Il dit à un autre: Suis-moi. Celui-ci répondit: Seigneur, permets-moi d'aller d'abord ensevelir mon père. Il lui dit: Laisse les morts ensevelir leurs morts; toi, va-t'en annoncer le règne de Dieu.
+  « Il dit à un autre: Suis-moi. Celui-ci répondit: Seigneur, permets-moi d'aller d'abord ensevelir mon père. Il lui dit: Laisse les morts ensevelir leurs morts; toi, va-t'en annoncer le règne de Dieu. »
+
+Après avoir découragé une personne qui voulait le suivre, il invite une autre personnes à le suivre. Cet homme veut finir ses obligations matérielles avant de suivre Jésus. La réponse de Jésus est proche de sa réplique fameuse concernant les taxes:
+
+  « Rendez donc à César ce qui est à César, et à Dieu ce qui est à Dieu. » (Lc 20.25)
+
+Jésus prend les hommes à contre-pied. Il trace une frontière entre le monde matériel et le royaume de Dieu. Ici, il y a deux types de morts: les morts dans la chair (le père de l'homme, qui est décédé) et les morts dans l'esprit (ceux qui vont l'ensevelir). Jésus appelle cet homme à être vivant dans le royaume de Dieu, ce qui le coupe des morts. Les problèmes des morts ne sont plus les siens.
 
 
 Versets 61-62
 -------------
 
   « Un autre dit: Je te suivrai, Seigneur, mais permets-moi d'aller d'abord prendre congé de ceux de ma maison. Jésus lui dit: Quiconque met la main à la charrue et regarde en arrière n'est pas bon pour le royaume de Dieu. »
+
+Là encore, il s'agit de faire la différence entre le monde et le royaume de Dieu. Ce passage me rappelle la femme de Loth lorsqu'il a quitté Sodome avant la destruction de la ville:
+
+  « Alors le SEIGNEUR fit pleuvoir sur Sodome et sur Gomorrhe du soufre et du feu venant du SEIGNEUR, du ciel. Il détruisit ces villes, tout le District, tous les habitants des villes et la végétation de la terre. La femme de Loth regarda en arrière et devint une statue de sel. » (Gn 19.24-26)
+
+Lorsque nous nous engageons dans le royaume de Dieu, dans la voie du salut, et que nous regardons en arrière en regrettant ce que nous y avons laissé, nous pouvons être bloqués dans notre marche avec Dieu. Ce n'est pas un mal de regarder en arrière pour louer Dieu pour ce qu'Il a fait. La femme ne Loth n'a pas regardé en arrière pour se rappeller que Dieu l'avait sauvée de la dévastation, mais pour jeter un dernier regard à la ville qu'elle aimait. Ne jetez pas un dernier regard à votre péché, ne regardez pas en arrière pour regretter la vie que vous avez laissée pour suivre Christ. Cela va vous changer en statue, et vous allez cesser d'avancer.
 
 
 .. contents:: `Sommaire`
