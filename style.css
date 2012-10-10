@@ -1,0 +1,61 @@
+@font-face{
+font-style: normal;
+font-family: "Linux Libertine O";
+font-weight: normal;
+src: url(fonts/LinLibertine_R.otf);
+}
+@font-face{
+font-style: italic;
+font-family: "Linux Libertine Italics O";
+font-weight: normal;
+src: url(fonts/LinLibertine_RI.otf);
+}
+@font-face{
+font-style: normal;
+font-family: "Linux Libertine Bold O";
+font-weight: bold;
+src: url(fonts/LinLibertine_RB.otf);
+}
+@font-face{
+font-style: normal;
+font-family: "Linux Biolinum O";
+font-weight: normal;
+src: url(fonts/LinBiolinum_R.otf);
+}
+@font-face{
+font-style: italic;
+font-family: "Linux Biolinum Italics O";
+font-weight: normal;
+src: url(fonts/LinBiolinum_RI.otf);
+}
+@font-face{
+font-style: normal;
+font-family: "Linux Biolinum Bold O";
+font-weight: bold;
+src: url(fonts/LinBiolinum_RB.otf);
+}
+
+body {
+  font-family: "Linux Libertine O";
+}
+
+i, em {
+  font-family: "Linux Libertine Italics O";
+}
+
+b, strong {
+  font-family: "Linux Libertine Bold O";
+}
+
+blockquote {
+  font-family: "Linux Biolinum O";
+  font-size: "small";
+}
+
+blockquote i, blockquote em {
+  font-family: "Linux Biolinum Italics O";
+}
+
+blockquote b, blockquote strong {
+  font-family: "Linux Biolinum bold O";
+}
