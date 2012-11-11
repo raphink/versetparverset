@@ -2,8 +2,8 @@
 Évangile selon Luc, chapire 11
 ===============================
 
-Pour ou contre les démons (Lc 11.14-23)
-========================================
+Choisissez votre camp (Lc 11.14-28)
+====================================
 
 Versets 14-16
 --------------
@@ -40,7 +40,7 @@ Versets 21-22
 
  « Lorsqu'un homme fort et bien armé garde sa propriété, ses biens sont en sûreté. Mais si un homme plus fort que lui survient et le bat, il lui enlève toutes les armes auxquelles il se fiait, et il peut distribuer le butin qu'il lui a pris. »
 
-Pour vaincre Satan, il faut être plus fort que lui, et donc être opposé à lui.
+Pour vaincre Satan, il faut être plus fort que lui, et donc être opposé à lui. Dieu est plus fort que Satan, ils ne sont pas égaux. Satan est une créature, Dieu est le créateur.
 
 
 Verset 23
@@ -71,8 +71,23 @@ Ici, il ne dit plus « vous » ou « nous », il dit « moi ». Celui qui 
 Gandhi a fait beaucoup pour les droits de l'homme, mais au final, il n'était pas pour Jésus. Donc, dans la guerre spirituelle qui oppose Dieu à Satan, il était contre Jésus. Si cela ne semble pas avoir d'importance pour beaucoup au regard des choses que Gandhi a faites sur cette terre, cela a une importance capitale concernant le salut éternel de cette homme, et la glorification de Dieu auprès des hommes. Si Dieu n'est pas glorifié par le bien qui est fait, c'est un bien inutile.
 
 
-La question la plus important à laquelle nous devons répondre dans notre vie est celle-ci : « Qui est Jésus ? » et le corrollaire qui en découle : « Suis-je pour ou contre Jésus ? » Paul était persuadé d'être pour Dieu, mais il était contre Jésus jusqu'à ce qu'il Le rencontre sur la route de Damas. Faites votre choix aujourd'hui, soyez pour Jésus, entièrement, et sans concession.
+Versets 24-26
+-------------
 
+ « Lorsque l'esprit impur est sorti de l'être humain, il passe par des lieux arides, cherche du repos et, comme il n'en trouve pas, il se dit : « Je vais retourner dans ma maison, celle d'où je suis sorti. » Quand il arrive, il la trouve balayée et ornée. Alors il s'en va chercher sept autres esprits plus mauvais que lui ; ils entrent là et s'installent, et la condition dernière de cet homme-là est pire que la première. »
+
+On a l'habitude de dire que « le naturel revient au galop ». Si un homme est libéré de ses démons, ils risquent de revenir encore plus vite. Alors, est-ce une fatalité ? Non. Ce qu'il faut, c'est que l'homme fort qui a chassé les démons reste dans la maison pour ne pas qu'ils y reviennent. Que les démons soient chassés est une chose, mais il faut encore s'assurer qu'ils ne reviennent plus. Il faut donc que la personne qui a été libérée accepte Jésus et que Jésus reste en lui. Ainsi, les démons ne pourront plus revenir. Soyez-en assurés, les démons ne peuvent pas posséder un chrétien, il n'y a pas la place dans notre corps pour Jésus et les démons en même temps.
+
+
+Versets 27-28
+--------------
+
+ « Tandis qu'il parlait ainsi, une femme éleva la voix du milieu de la foule et lui dit : Heureux le ventre qui t'a porté et les seins qui t'ont allaité ! Mais il répondit : Heureux plutôt ceux qui entendent la parole de Dieu et qui l'observent ! »
+
+Cette femme met en avant la mère de Jésus, mais Jésus la corrige en disant que ce qui est important, c'est de L'écouter Lui, et de Lui obéir. Encore une fois, si vous n'êtes pas pour Jésus, vous êtes contre Jésus.
+
+
+La question la plus important à laquelle nous devons répondre dans notre vie est celle-ci : « Qui est Jésus ? » et le corrollaire qui en découle : « Suis-je pour ou contre Jésus ? » Paul était persuadé d'être pour Dieu, mais il était contre Jésus jusqu'à ce qu'il Le rencontre sur la route de Damas. Faites votre choix aujourd'hui, soyez pour Jésus, entièrement, et sans concession.
 
 
 
