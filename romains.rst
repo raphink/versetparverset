@@ -2,8 +2,11 @@
 Épitre aux Romains
 ==================
 
+Chapitre 1
+==========
+
 Introduction : L'identité de Paul
-=================================
++++++++++++++++++++++++++++++++++
 
 Verset 1
 --------
@@ -24,7 +27,7 @@ La communauté de Rome a été fondée par Pierre, et Paul ne lui a pas encore r
 
 
 L'obéissance de la foi
-======================
+++++++++++++++++++++++
 
 Versets 2 & 3
 -------------
@@ -90,7 +93,7 @@ Nous avons été habitués peut-être à cette salutation : « Grâce et paix�
 
 
 La bonne nouvelle pour tous
-===========================
++++++++++++++++++++++++++++
 
 Verset 8
 ---------
@@ -142,8 +145,8 @@ Verset 17
 La bonne nouvelle révèle le salut par la foi, et non plus par la loi, par nos œuvres et nos efforts personnels pour atteindre la sainteté.
 
 
-Le message du salut
-===================
+Impiété et injustice
+++++++++++++++++++++
 
 Verset 18
 ---------
@@ -166,3 +169,82 @@ Versets 22-23
   « Se prétendant sages, ils sont devenus fous et ils ont changé la gloire du Dieu impérissable en des images représentant l'être humain périssable, des oiseaux, des quadrupèdes et des reptiles. »
 
 Les divinités païennes ne sont pas de vrais dieus. Ce sont tout au plus des puissances spirituelles démoniaques, ou simplement des bouts de pierre et de bois taillés par l'homme. Paul affirme que les hommes sont devenus fous, car ils ont choisi de ne pas adorer le créateur, mais d'adorer des images de la création à la place. Bon, mais aujourd'hui, on n'adore plus des statues et des bouts de bois! Qui sont nos idoles aujourd'hui? L'ingtelligence (le dieu Baal)? La beauté et la fertilité (la déesse Astarté)? Ou simplement la dernière star musicale à la mode, ou notre acteur de cinéma favori? Le cœur des hommes n'a pas changé, ils continuent à adorer la création (et souvent même la création des hommes) plutôt que le créateur. Il n'y a aucune excuse à cela.
+
+
+Versets 24-25
+-------------
+
+  « C'est pourquoi Dieu les a livrés à l'impureté, par les désirs de leur cœur, de sorte qu'entre eux ils déshonorent leur propre corps, eux qui ont changé la vérité de Dieu pour le mensonge et qui ont adoré la création, en lui rendant un culte, au lieu du Créateur, qui est béni pour toujours! *Amen*! »
+
+L'impureté, et en particulier l'impureté sexuelle, est une adoration de la création plutôt que du Créateur. Dieu a fixé des limites à ce qui est bon pour nos corps. Franchir ces limites, c'est adorer le corps plus que son Créateur.
+
+
+Versets 26-27
+-------------
+
+  « C'est pour cela que Dieu les a livrés à des passions déshonorantes. Ainsi, en effet, leurs femmes ont changé les relations naturelles pour des actes contre nature ; de même les hommes, abandonnant les relations naturelles avec la femme, se sont enflammés dans leur appétit les uns pour les autres ; ils se livrent, entre hommes, à des actes honteux et reçoivent en eux-mêmes le salaire que mérite leur égarement. »
+
+Paul est clair : les actes de sexualité homosexuels sont des actes « honteux » dûes à des passions déshonorantes. Il les identifient comme des conséquence de l'impureté, de l'adoration du corps plutôt que du Créateur. Mais il semble que Paul ne limite pas sa critique à l'homosexualité, mais à toute dérive sexuelle, qu'il assimile également à ce culte de la création, et aux cultes païens qui les pratiquent. Les religions païennes avaient en effet souvent des notions de prostitution sacrée, de femmes et d'hommes.
+ 
+
+Versets 28-31
+-------------
+
+  « Comme ils n'ont pas jugé bon de reconnaître Dieu, Dieu les a livrés à leur manque de jugement, de sorte qu'ils font des choses indignes ; ils sont remplis de toute espèce d'injustice, de méchanceté, d'avidité, de malfaisance ; pleins d'envie, de meurtre, de disputes, de ruses, de vices ; diffamateurs, médisants, ennemis de Dieu, insolents, orgueilleux, fanfarons, ingénieux pour le mal, rebelles envers leurs parents, sans intelligence, sans loyauté, insensibles, sans compassion. »
+
+Paul décrit différentes caractéristiques d'hommes (et de femmes) en état d'impureté, qui adorent la création au lieu du Créateur.
+
+On peut comparer cette liste avec celle qui décrit les œuvres de la chair en Galates 5.19-20 :
+
+  « inconduite sexuelle, impureté, débauche, idolâtrie, sorcellerie, hostilités, disputes, passions jalouses, fureurs, ambitions personnelles, divisions, dissensions, envie, beuveries, orgies et autres choses semblables […] ceux qui pratiquent de telles choses n'hériteront pas le royaume de Dieu. »
+
+Prenons garde à toutes ces choses dans nos vies. Ce sont les œuvres de la chair, les manifestations que nous adorons la création plutôt que le Créateur, nos corps, notre chair, plutôt que Celui qui nous les a donnés. En contraste avec ces choses, Paul décrit le fruit de l'Esprit en Galates 5.22-23 :
+
+  « Quant au fruit de l'Esprit, c'est : amour, joie, paix, patience, bonté, bienveillance, foi, douceur, maîtrise de soi ; aucune loi n'est contre de telles choses. »
+
+
+Verset 32
+---------
+
+  « Et bien qu'ils connaissent le juste décret de Dieu selon lequel ceux qui pratiquent de telles choses méritent la mort, non seulement ils les font eux-mêmes, mais encore ils approuvent ceux qui les pratiquent. »
+
+Paul nous prévient : approuver le péché des autres n'est pas mieux (sinon pire) que de pécher soi-même. Approuver le péché, ce n'est pas de la tolérance, c'est de l'irresponsabilité. Si nous savons que le péché mérite la mort et que nous en connaissons le remède, approuver le péché, c'est condamner ceux qui le pratiquent, c'est manquer de compassion envers ceux qui se trouvent sur le chemin de la mort. Ne pratiquons pas ces choses, et ne les approuvons pas non plus.
+
+
+Chapitre 2
+==========
+
+Paul a parlé au chapitre 1 de l'impureté et de l'injustice des hommes. Les pharisiens auraient été complètement d'accord avec lui. Il va donc maintenant nous parler de l'auto-satisfaction et du jugement des autres.
+
+Le jugement de Dieu
++++++++++++++++++++
+
+Verset 1
+--------
+
+  « Tu es donc inexcusable, toi qui juges, qui que tu sois ; en jugeant l'autre, en effet, tu te condamnes toi-même, puisque, toi qui juges, tu pratiques les mêmes choses. »
+
+Jésus a dit à ses disciples : « Ne jugez pas, et nous ne serez jamais jugés ; ne condamnez pas, et vous ne serez jamais condamnés ; absolvez, et vous serez absous » (Lc 6.37). Mais Paul ne vient-il pas de nous dire au chapitre précédent de ne pas approuver le péché? Oui, bien sûr, mais il ne nous dit pas de juger non plus. Nous ne devons pas tolérer le péché, mais nous devons aimer et ne pas juger les pécheurs, car nous sommes touspécheurs. Ne pensez pas que vous pouvez juger les païens ou les homosexuels, car vous vous rendez coupables en faisant cela.
+
+
+Versets 2-4
+-----------
+
+  « Or nous savons que le jugement de Dieu contre ceux qui pratiquent de telles choses est conforme à la vérité. Comptes-tu donc, toi qui juges ceux qui pratiquent de telles choses et qui les fais toi-même, échapper au jugement de Dieu? Ou bien méprises-tu la richesse de sa bonté, de sa tolérance et de sa patience, faute de reconnaître que la bonté de Dieu doit te conduire à un changement radical? »
+
+Dans l'Évangile selon Mathieu, Jésus raconte la parabole d'un homme qui devait beaucoup d'argent à son roi. Comme il ne pouvait pas payer, il a imploré le roi de lui donner du temps pour rembourser, et le roi lui a remis sa dette entièrement. En sortant, cet homme a rencontré un compagnon qui lui devait une petite somme d'argent, mais il a refusé de lui donner du temps pour la rembourser. Le roi, en apprenant cela, a fait mettre l'homme en prison jusqu'à ce qu'il ait payé toute sa dette (paraphrase de Mathieu 18.23-35).
+
+Voilà à quoi nous ressemblons lorsque nous jugeons les autres. Nous sommes conscients de la dette que Dieu nous a remise sans que nous le méritions, mais nous continuons à accuser les autres du poids de leur propre dette. Pensons-nous pouvoir échapper au jugement de Dieu par nos propres moyens? Nous savons pourtant que c'est seulement par le sacrifice et la grâce de Jésus-Christ que nous sommes sauvés, rien de ce que nous faisons par nos propres forces ne peut payer notre dette. Notre tâche n'est pas de juger les pécheurs, mais de les conduire dans la repentance à Dieu, qui peut leur remettre leur dette comme il nous a remis la nôtre.
+
+
+Versets 5-8
+-----------
+
+  « Par ton obstination, parce que ton cœur se refuse à changer radicalement, tu t'amasses un trésor de colère pour le jour de la colère et de la révélation du juste jugement de Dieu, qui *rendra à chacun selon ses œuvres :* vie éternelle à ceux qui, par leur persévérance dans une œuvre bonne, cherchent la gloire, l'honneur et l'impérissable ; colère et fureur à ceux qui, par ambition personnelle, sont réfractaires à la vérité et se laissent persuader par l'injustice. »
+
+
+Versets 9-11
+------------
+ 
+  « Détresse et angoisse pour tout homme qui produit le mal, pour le Juif d'abord, mais aussi pour le Grec! Gloire, honneur et paix pour quiconque œuvre au bien, pour le Juifs d'abord, mais aussi pour le Grec! Car il n'y a pas de partialité chez Dieu. »
+  
