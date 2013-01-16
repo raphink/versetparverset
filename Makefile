@@ -2,6 +2,9 @@ define LATEX_PREAMBLE
 \usepackage[french]{babel}\setmainfont{Linux Libertine O}\setsansfont{Linux Biolinum O}\setmonofont[HyphenChar=None]{DejaVu Sans Mono}
 endef
 
+LATEX_DOCUMENTOPTIONS=fontsize=12pt
+LATEX_DOCUMENTCLASS=scrartcl
+
 KINDLE_PATH=/documents/raphael
 DOCUMENT=luc8
 AUTHOR=Raphaël Pinson
@@ -32,7 +35,9 @@ kindle: $(DOCUMENT)-to-kindle
 	ebook-device cp $< "prs500:$(KINDLE_PATH)/$<"
 
 %.tex: %.rst
-	rst2xetex --latex-preamble='$(LATEX_PREAMBLE)' $< > $@
+	rst2xetex --documentoptions='$(LATEX_DOCUMENTOPTIONS)' \
+		  --documentclass='$(LATEX_DOCUMENTCLASS)' \
+	          --latex-preamble='$(LATEX_PREAMBLE)' $< > $@
 
 %.pdf: %.tex
 	xelatex -interaction=batchmode $<
