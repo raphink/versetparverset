@@ -12,7 +12,7 @@ Mais Ruth n'est pas qu'un livre historique, c'est également un livre à portée
 Chapitre 1
 ==========
 
-  Il arriva, aux jours du gouvernement des juges, qu'il y eut une famine dans le pays, et un homme de Bethléhem de Juda s'en alla habiter la campagne de Moab, lui, sa femme, et ses deux fils.
+  1. Il arriva, aux jours du gouvernement des juges, qu'il y eut une famine dans le pays, et un homme de Bethléhem de Juda s'en alla habiter la campagne de Moab, lui, sa femme, et ses deux fils.
 
 Ce premier verset plante le décor: l'histoire se passe au temps des juges, à Bethléhem de Juda.
 
@@ -24,14 +24,18 @@ Chacun faisait ce qui lui semblait bon. Ca paraît être une plutôt bonne idée
 
 Il faut dire qu'Israël avait déjà désobéi à Dieu concernant deux points importants: ils n'avaient pas entièrement conquis le pays que Dieu leur avait donné, et ils ne s'étaient pas complètement débarassés des peuples qui habitaient les pays avant eux. Pourquoi Dieu leur avait-Il demandé de faire cette chose qui peut nous paraître barbare? Était-ce parce qu'Il détestait les autres peuples? Non, c'était plutôt pour protéger le peuple d'Israël de tomber dans l'idolâtrie, dans le polythéisme, et d'être ainsi séparés du vrai Dieu. Car les hommes ont tendance à tomber dans le polythéisme, dans l'idolâtrie, s'ils ne s'en gardent pas. Tous les peuples ont ou ont eu à un moment de leur histoire la connaissance du vrai Dieu, de la véritable religion qui consiste à adorer le créateur éternel, mais beaucoup de peuples ont été conduits au cours du temps à adorer des démons, petits dieux qui les tenaient en servitude, et ont abandonné le véritable culte au Dieu créateur, Yahwé (à ce sujet, voir le livre de Don Richardson, *l'Éternité dans leurs cœurs*).
 
+Le temps des juges prend fin dans le premier livre de Samuel lorsque le prophète Samuel, qui est le dernier juge, oint Saül comme premier roi sur Israël, à la demande du peuple (I Samuel 10.1).
+
 Nous commençons donc ce livre de Ruth avec une famille qui vit à Bethléhem, en Juda, au temps des juges. Il s'agit ici du même Bethléhem où Jésus est né dans une crèche, et où le roi David a grandi. C'est un village à quelques kilomètres au sud de la ville Jérusalem, qui ne porte pas encore ce nom à l'époque du livre de Ruth.
 
 En hébreu, Bethléhem signifie « la maison du pain » et Juda signifie « la louange ». Cette famille vit donc dans un lieu propice à la prospérité. Pourtant, une famine va survenir. Est-ce très surprenant? Non, pas vraiment, puisque nous sommes à l'époque des juges, une époque d'alternance entre bénédictions de Dieu (lorsque Israël Lui est fidèle) et difficultés (lorsque Israël se détourne de Lui). Les famines sont des conséquences de l'infidélité d'Israël à Dieu, et nous nous trouvons donc dans l'une de ces périodes.
 
-Face à la situation de crise, cette famille de Bethéléhem choisit de quitter le pays pour se réfugier en Moab. Moab est un lieu très particulier dans la Bible. Dans le psaume 109, Dieu l'appelle « bassin où je me lave ». C'est un peuple rejetté par Dieu, en raison de leur refus de laisser les hébreux traverser leur pays lors de leur sortie du désert, et que les moabites, sous l'impulsion du prophète Balaam, avaient envoyé leurs femmes séduire Israël afin de les tenter (Nombres 25). Le peuple de Moab était lui-même né d'un épisode d'immoralité sexuelle, puisque Moab, son ancêtre, était le fils né de Loth et de l'une de ses filles, suite à la destruction de la ville de Sodome (Genèse 19.37).
+Face à la situation de crise, cette famille de Bethéléhem choisit de quitter le pays pour se réfugier en Moab. Moab est un lieu très particulier dans la Bible. Dans le psaume 109, Dieu l'appelle « le bassin où je me lave ». C'est un peuple rejetté par Dieu, en raison de leur refus de laisser les hébreux traverser leur pays lors de leur sortie du désert, et que les moabites, sous l'impulsion du prophète Balaam, avaient envoyé leurs femmes séduire Israël afin de les tenter (Nombres 25). Le peuple de Moab était lui-même né d'un épisode d'immoralité sexuelle, puisque Moab, son ancêtre, était le fils né de Loth et de l'une de ses filles, suite à la destruction de la ville de Sodome (Genèse 19.37). Partir à Moab était donc la plus mauvaise solution qu'on puisse imaginer.
 
 
+  2. Le nom de cet homme était Élimélec, et le nom de sa femme Naomi, et les noms de ses deux fils Machlon et Kiljon; ils étaient Éphratiens, de Bethléhem de Juda, et ils vinrent dans la campagne de Moab, et ils s'y établirent.
 
+En hébreu, les noms ont une grande importance. Dans la Bible, les enfants sont nommés à la naissance et leur nom a un rapport soit avec les circonstances de leur naissance, soit avec leur destinée. Les noms hébreux ont toujours une signification. C'est un des points qui discrédite totalement les livres des Mormons qui contiennent des noms sensés être juifs, mais qui ne signifient rien en hébreu.
 
-
+On nous donne ici les noms des quatre membres de cette famille de Bethléhem. Le père s'appelle Élimélec, ce qui signifie « mon Dieu est roi ». Sa femme se prénomme Naomi (ou Noémie), qui veut dire plaisante ou agréable. Ils ont deux fils, dont les noms sont Machlon (maladif) et Kiljon (échec). Éphrata est un autre nom de Behtléhem de Juda, qui signifie « qui porte du fruit ».
 
