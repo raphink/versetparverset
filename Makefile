@@ -1,5 +1,5 @@
 define LATEX_PREAMBLE
-\usepackage[french]{babel}\setmainfont{Linux Libertine O}\setsansfont{Linux Biolinum O}\setmonofont[HyphenChar=None]{DejaVu Sans Mono}
+\usepackage[french]{babel}\usepackage{xunicode}\defaultfontfeatures{Ligatures=TeX}\setmainfont{Linux Libertine O}\setsansfont{Linux Biolinum O}\setmonofont[HyphenChar=None]{DejaVu Sans Mono}\usepackage{csquotes}\usepackage{nowidow}\usepackage{microtype}
 endef
 
 LATEX_DOCUMENTOPTIONS=fontsize=12pt
