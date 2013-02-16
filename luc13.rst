@@ -96,24 +96,10 @@ C'est le même type de chefs religieux qui sont ici appelé enfants du diable et
   :sup:`1` Lorsque Abram fut âgé de 99 ans, l'Eternel apparut à Abram et lui dit: «Je suis le Dieu tout-puissant. Marche devant moi et sois intègre.
   :sup:`2` J'établirai mon alliance entre moi et toi, et je te multiplierai considérablement.»
 
-Mais l'arbre à trop grandi. À la foi d'Abraham et aux commandements de Dieu, les hommes ont ajouté des charges supplémentaires, des lois que Dieu n'avaient pas édictées, et qui empêche cette fille de la promesse d'être libérée de son démon et de son infirmité un jour de sabbat. C'est l'œuvre de ces oiseaux du ciel perchés dans les branches du buisson qui a trop grandi. C'est l'œuvre du levain qui a rempli la pâte d'air, qui gonflé la religion de vide au lieu d'y faire fructifier la foi d'Abraham.
+Mais l'arbre à trop grandi. À la foi d'Abraham et aux commandements de Dieu, les hommes ont ajouté des charges supplémentaires, des lois que Dieu n'avaient pas édictées, et qui empêche cette fille de la promesse d'être libérée de son démon et de son infirmité un jour de sabbat. C'est l'œuvre de ces oiseaux du ciel perchés dans les branches du buisson qui a trop grandi. C'est l'œuvre du levain qui a rempli la pâte d'air, qui a gonflé la religion de vide au lieu d'y faire fructifier la foi d'Abraham.
 
+Tout ce qui est nécessaire à cette femme pour être guérie, c'est sa foi. Tout ce qui remplace la foi dans la religion est vain, car
 
+  :sup:`6` […] sans la foi, il est impossible d’être agréable à Dieu, car il faut que celui qui s'approche de lui croie que Dieu existe et qu'il récompense ceux qui le cherchent. (Hebreux 11.6)
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
+Soyons vigilants de ne pas tenter d'ajouter à la foi des règles humaines, des limitations, qui pourraient nous empêcher de voir l'œuvre de Dieu autour de nous et de nous y associer. Car c'est par la foi que nous sommes sauvés, par la foi en Jésus-Christ, qui est mort pour nous délivrer du péché. Par la foi, nous le reconnaissons comme Sauveur et Seigneur et nous recevons le salut et la vie éternelle.
