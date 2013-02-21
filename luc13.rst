@@ -120,7 +120,7 @@ Jésus est maintenant sur le chemin pour aller vers Jérusalem, le but final de 
 
 Une personne demande à Jésus si beaucoup de gens seront sauvés. Mais Jésus ne répond pas vraiment à la question. Au lieu de répondre, il raconte une histoire de porte… De quelle porte s'agit-il?
 
-Il s'agit d'une porte étroite, qui garde l'entrée de paradis. Cette porte est le passage vers le salut. Beaucoup cherchent à y entrer (ζητεῖν), mais Jésus nous encourage à essayer avec insistance (ἀγωνίζεσθαι, qui nous a donné le mot *agoniser*). Certains théologiens suggèrent qu'il y a trop de monde qui se presse pour entrer par cette porte étroite, et que cela empêche les autres d'entrer.
+Il s'agit d'une porte étroite, qui garde l'entrée de paradis. Cette porte est le passage vers le salut. Beaucoup cherchent à y entrer (ζητεῖν), mais Jésus nous encourage à essayer avec insistance (ἀγωνίζεσθαι, qui nous a donné le mot *agoniser*). Certains théologiens suggèrent qu'il y a trop de monde qui se presse pour entrer par cette porte étroite, et que cela empêche les autres d'entrer.
 
 Il s'agirait alors de pousser le plus fort possible pour tenter de passer à travers la foule. Certains pourraient entrer car ils seraient plus forts, ou «prioritaires», d'autres se retrouveraient dehors par manque de force ou d'importance.
 
@@ -176,7 +176,9 @@ Et que dis Jésus au sujet de ces gens?
 
 Ceux qui construisent leur maison sur le roc, sur Jésus et le salut qu'Il nous offre, ceux-là résisteront à la tempête et ceux-là entreront au royaume des cieux, par la porte étroite.
  
-Et qu'y trouveront-ils, au royaume de Dieu?
+Une autre personne à été confrontée à un déluge: Noé. Au moment de la destruction de tous les êtres vivants, Noé était dans l'arche et en a fermé la porte. On peut imaginer, quand les eaux ont commencé à monter, que les personnes restées au dehors voulaient entrer dans l'arche, mais la porte ne pouvait plus être ouverte. C'est la foi de Noé qui lui a permis d'être prévenu, d'entrer dans l'arche et d'être sauvé (Hebreux 11.7).
+
+Et ceux qui sont sauvés, qui ont passé la porte, qu'y trouveront-ils, au royaume de Dieu?
 
   :sup:`29` On viendra de l'est et de l'ouest, du nord et du sud, et l’on se mettra à table dans le royaume de Dieu.
 
