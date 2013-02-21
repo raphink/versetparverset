@@ -117,11 +117,6 @@ Jésus est maintenant sur le chemin pour aller vers Jérusalem, le but final de 
   :sup:`23` Quelqu'un lui dit: «Seigneur, n'y a-t-il que peu de gens qui soient sauvés?» Il leur répondit:
   :sup:`24` «Efforcez-vous d'entrer par la porte étroite. En effet, je vous le dis, beaucoup chercheront à entrer et ne le pourront pas.
   :sup:`25` Quand le maître de la maison se sera levé et aura fermé la porte, vous qui êtes dehors, vous commencerez à frapper à la porte en disant: ‘Seigneur, [Seigneur,] ouvre-nous!’ Il vous répondra: ‘Je ne sais pas d'où vous êtes.’
-  :sup:`26` Alors vous vous mettrez à dire: ‘Nous avons mangé et bu devant toi, et tu as enseigné dans nos rues.’
-  :sup:`27` Il répondra: ‘Je vous le dis, je ne sais pas d'où vous êtes; éloignez-vous de moi, vous tous qui commettez l’injustice.’
-  :sup:`28` C’est là qu’il y aura des pleurs et des grincements de dents, quand vous verrez Abraham, Isaac, Jacob et tous les prophètes dans le royaume de Dieu et que vous, vous serez jetés dehors.
-  :sup:`29` On viendra de l'est et de l'ouest, du nord et du sud, et l’on se mettra à table dans le royaume de Dieu.
-  :sup:`30` Certains parmi les derniers seront les premiers, et d'autres parmi les premiers seront les derniers.»
 
 Une personne demande à Jésus si beaucoup de gens seront sauvés. Mais Jésus ne répond pas vraiment à la question. Au lieu de répondre, il raconte une histoire de porte… De quelle porte s'agit-il?
 
@@ -160,5 +155,36 @@ C'est donc Jésus lui-même qui est la porte, le passage. C'est en le connaissan
 
 Quel est donc le critère pour passer cette porte étroite? C'est la foi en Jésus comme le Messie, le Sauveur, et notre Seigneur. En le reconnaissant comme tel, il nous laissera passer par cette porte étroite, ce qu'aucune de nos œuvres ne peut nous permettre de faire.
 
+Continuons dans la passage de Luc:
 
+  :sup:`26` Alors vous vous mettrez à dire: ‘Nous avons mangé et bu devant toi, et tu as enseigné dans nos rues.’
+  :sup:`27` Il répondra: ‘Je vous le dis, je ne sais pas d'où vous êtes; éloignez-vous de moi, vous tous qui commettez l’injustice.’
+  :sup:`28` C’est là qu’il y aura des pleurs et des grincements de dents, quand vous verrez Abraham, Isaac, Jacob et tous les prophètes dans le royaume de Dieu et que vous, vous serez jetés dehors.
+
+C'est un passage similaire à Matthieu 7.21-23:
+
+  :sup:`21` «Ceux qui me disent: ‘Seigneur, Seigneur!’ n'entreront pas tous dans le royaume des cieux, mais seulement celui qui fait la volonté de mon Père céleste.
+  :sup:`22` Beaucoup me diront ce jour-là: ‘Seigneur, Seigneur, n'avons-nous pas prophétisé en ton nom? N'avons-nous pas chassé des démons en ton nom? N'avons-nous pas fait beaucoup de miracles en ton nom?’
+  :sup:`23` Alors je leur dirai ouvertement: ‘Je ne vous ai jamais connus. Eloignez-vous de moi, vous qui commettez le mal!’
+
+Et que dis Jésus au sujet de ces gens?
+
+  :sup:`24` »C'est pourquoi, toute personne qui entend ces paroles que je dis et les met en pratique, je la comparerai à un homme prudent qui a construit sa maison sur le rocher.
+  :sup:`25` La pluie est tombée, les torrents sont venus, les vents ont soufflé et se sont déchaînés contre cette maison; elle ne s’est pas écroulée, parce qu'elle était fondée sur le rocher.
+  :sup:`26` Mais toute personne qui entend ces paroles que je dis et ne les met pas en pratique ressemblera à un fou qui a construit sa maison sur le sable.
+  :sup:`27` La pluie est tombée, les torrents sont venus, les vents ont soufflé et se sont abattus sur cette maison; elle s’est écroulée et sa ruine a été grande.»
+
+Ceux qui construisent leur maison sur le roc, sur Jésus et le salut qu'Il nous offre, ceux-là résisteront à la tempête et ceux-là entreront au royaume des cieux, par la porte étroite.
+ 
+Et qu'y trouveront-ils, au royaume de Dieu?
+
+  :sup:`29` On viendra de l'est et de l'ouest, du nord et du sud, et l’on se mettra à table dans le royaume de Dieu.
+
+Il y aura des personnes venant de toute la terre. Et pas seulement des Juifs, mais aussi des non-Juifs! C'est une idée choquante pour les Juifs (surtout à l'époque de Jésus) que des non-Juifs puissent être sauvés. Et pourtant, tout au long du ministère de Jésus, il enseigne à ces disciples que le message est pour les Juifs et les non-Juifs.
+ 
+  :sup:`30` Certains parmi les derniers seront les premiers, et d'autres parmi les premiers seront les derniers.
+
+Certains parmis les plus pauvres, les plus démunis, les moins puissants de cette terre seront parmis les plus importants au royaume de Dieu, là où Jésus les appellera à s'asseoir à ses côtés. D'autres, puissants et riches dans ce monde (voire spirituels en apparence) seront les derniers au royaume de Dieu, voire n'entreront même pas.
+
+Et vous, êtes-vous sauvés? C'est une question qu'il ne faut pas avoir peur de se poser, et à laquelle il faut répondre. Si vous vous êtes repenti de vos péchés et que vous avez accepté Jésus comme votre Sauveur et Seigneur, alors la Bible dit que vous êtes sauvés. Vivez alors comme des hommes renouvelés, et laissez Jésus vous nourrir et vous renouveler chaque jour, afin que transformés à son image, vous reflétiez la gloire de Dieu en ce monde, et que vous soyez bientôt accueillis avec joie dans la présence de Dieu.
 
