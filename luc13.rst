@@ -120,9 +120,9 @@ Jésus est maintenant sur le chemin pour aller vers Jérusalem, le but final de 
 
 Une personne demande à Jésus si beaucoup de gens seront sauvés. Mais Jésus ne répond pas vraiment à la question. Au lieu de répondre, il raconte une histoire de porte… De quelle porte s'agit-il?
 
-Il s'agit d'une porte étroite, qui garde l'entrée de paradis. Cette porte est le passage vers le salut. Beaucoup cherchent à y entrer (ζητεῖν), mais Jésus nous encourage à essayer avec insistance (ἀγωνίζεσθαι, qui nous a donné le mot *agoniser*). Certains théologiens suggèrent qu'il y a trop de monde qui se presse pour entrer par cette porte étroite, et que cela empêche les autres d'entrer.
+Il s'agit d'une porte étroite, qui garde l'entrée du paradis. Cette porte est le passage vers le salut. Beaucoup cherchent (ζητεῖν) à y entrer, mais Jésus nous encourage à essayer avec insistance (ἀγωνίζεσθαι, qui nous a donné le mot *agoniser*).
 
-Il s'agirait alors de pousser le plus fort possible pour tenter de passer à travers la foule. Certains pourraient entrer car ils seraient plus forts, ou «prioritaires», d'autres se retrouveraient dehors par manque de force ou d'importance.
+Certains théologiens suggèrent qu'il y a trop de monde qui se presse pour entrer par cette porte étroite, et que cela empêche les autres d'entrer. Il s'agirait alors de pousser le plus fort possible pour tenter de passer à travers la foule. Certains pourraient entrer car ils seraient plus forts, ou «prioritaires», d'autres se retrouveraient dehors par manque de force ou d'importance. Est-ce vraiment de cela qu'il s'agit?
 
 Dans Marc 10.23-25, Jésus demande à un homme de donner toutes ses richesses, et comme l'homme est attristé et s'en va, il dit à ses disciples:
 
@@ -130,16 +130,19 @@ Dans Marc 10.23-25, Jésus demande à un homme de donner toutes ses richesses, e
   :sup:`24` Les disciples furent effrayés de ce que Jésus parlait ainsi. Il reprit: «Mes enfants, qu'il est difficile [à ceux qui se confient dans les richesses] d'entrer dans le royaume de Dieu!
   :sup:`25` Il est plus facile à un chameau de passer par un trou d'aiguille qu'à un riche d'entrer dans le royaume de Dieu.»
 
-Certains suggèrent que le trou d'aiguille se réfère à un type de portes étroite qui permet de rentrer dans une ville, et qui a la forme d'un chas d'aiguille. Les disciples sont choqués, car à l'époque de Jésus, on considérait que plus une personne était bénie (physiquement, matériellement), plus elle était spirituelle, et donc plus elle avait de chance d'entrer dans le royaume de Dieu: 
+Certains suggèrent que le trou d'aiguille se réfère à un type de porte étroite qui permet de rentrer dans une ville, et qui a la forme d'un chas d'aiguille. Les disciples sont choqués, car à l'époque de Jésus, on considérait que plus une personne était bénie (physiquement, matériellement), plus elle était spirituelle, et donc plus elle avait de chance d'entrer dans le royaume de Dieu: 
 
   :sup:`26` Les disciples furent encore plus étonnés et se dirent les uns aux autres: «Qui donc peut être sauvé?»
+
+Cette question au verset 26 est assez similaire à celle de Luc 13.23.
+
   :sup:`27` Jésus les regarda et dit: «Aux hommes cela est impossible, mais non à Dieu, car tout est possible à Dieu.»
   :sup:`28` Alors Pierre lui dit: «Nous avons tout quitté et nous t'avons suivi.»
   :sup:`29` Jésus répondit: «Je vous le dis en vérité, personne n'aura quitté à cause de moi et à cause de la bonne nouvelle sa maison ou ses frères, ses sœurs, sa mère, son père, [sa femme,] ses enfants ou ses terres,
   :sup:`30` sans recevoir au centuple, dans le temps présent, des maisons, des frères, des sœurs, des mères, des enfants et des terres, avec des persécutions et, dans le monde à venir, la vie éternelle.
   :sup:`31` Bien des premiers seront les derniers et bien des derniers seront les premiers.»
 
-La question du verset 26 est assez similaire à celle de Luc 13.23, et ce dernier verset est, presque mot pour mot, identique à Luc 13.30 qui termine le passage d'aujourd'hui.
+Ce dernier verset est, presque mot pour mot, identique à Luc 13.30 qui termine le passage d'aujourd'hui.
 
 Jésus explique donc dans l'Évangile de Marc que bien cette porte étroite ne peut pas être passée par la force des hommes, ou par leur droiture. Seul Dieu peut les faire entrer dans la maison.
 
