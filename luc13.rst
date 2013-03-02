@@ -193,3 +193,73 @@ Certains parmis les plus pauvres, les plus démunis, les moins puissants de cett
 
 Et vous, êtes-vous sauvés? C'est une question qu'il ne faut pas avoir peur de se poser, et à laquelle il faut répondre. Si vous vous êtes repenti de vos péchés et que vous avez accepté Jésus comme votre Sauveur et Seigneur, alors la Bible dit que vous êtes sauvés. Vivez alors comme des hommes renouvelés, et laissez Jésus vous nourrir et vous renouveler chaque jour, afin que transformés à son image, vous reflétiez la gloire de Dieu en ce monde, et que vous soyez bientôt accueillis avec joie dans la présence de Dieu.
 
+Le signe de la Croix (Lc 13.31-35)
+===================================
+
+  :sup:`31` Ce même jour, des pharisiens vinrent lui dire: «Va-t'en, pars d'ici, car Hérode veut te faire mourir.»
+
+Jésus est sur le chemin qui le conduit de la Galilée vers Jérusalem, et traverse le territoire du roi Hérode, la Pérée. Les pharisiens de cette région l'encouragent à quitter la région, en prétextant que Hérode veut le tuer. Ce n'est pas que les pharisiens veulent protéger Jésus, mais ils utilisent cette excuse pour faire partir Jésus de leur région.
+
+  :sup:`32` Il leur répondit: «Allez dire à ce renard: ‘Voici, je chasse les démons et je fais des guérisons aujourd'hui et demain, et le troisième jour j'aurai fini.
+
+Jésus compare Hérode à un renard. Que ce soit dans notre culture ou dans la culture juive de l'époque, la comparaison à un renard n'est pas flatteuse. C'est la seule fois que Jésus parle en ces termes d'un responsable politique. Cela dit, Hérode n'était pas vraiment un roi Juif, c'était un roi illégitime.
+
+Depuis la naissance même de Jésus, Hérode se sentait menacé par Jésus annoncé comme roi des Juifs et cherchait à s'en débarrasser. Jésus répond que Hérode (ou les pharisiens qui parlent en son nom) ne doivent pas croire que ce qu'il fait à l'heure actuelle est le but ultime de son ministère. Chasser les démons et faire des guérisons n'est pas le but du ministère de Jésus, ce n'est qu'un signe.
+
+Dans Marc 1.35-38:
+
+  :sup:`35` Vers le matin, alors qu'il faisait encore très sombre, il se leva et sortit pour aller dans un endroit désert où il pria.
+  :sup:`36` Simon et ceux qui étaient avec lui se mirent à sa recherche;
+  :sup:`37` quand ils l'eurent trouvé, ils lui dirent: «Tout le monde te cherche.»
+  :sup:`38` Il leur répondit: «Allons [ailleurs,] dans les villages voisins, afin que j'y prêche aussi, car c'est pour cela que je suis sorti.»
+
+Tout le monde cherchait Jésus pour qu'il accomplisse des guérisons comme il l'avait fait la veille. Jésus affirme qu'il est venu d'abord pour prêcher, pas pour accomplir des miracles. Les miracles servent à confirmer, à valider l'identité et le ministère de Jésus, mais ils ne sont pas le but ultime de son ministère.
+
+Un exemple de la volonté de Dieu de révéler ses œuvres par des miracles se trouve dans Jean 9.1-3:
+
+  :sup:`1` Jésus vit, en passant, un homme aveugle de naissance.
+  :sup:`2` Ses disciples lui posèrent cette question: «Maître, qui a péché, cet homme ou ses parents, pour qu'il soit né aveugle?»
+  :sup:`3` Jésus répondit: «Ce n'est pas que lui ou ses parents aient péché, mais c'est afin que les œuvres de Dieu soient révélées en lui.
+
+Mais alors que le peuple voulait plus de signes encore, Jésus a clairement indiqué la place des signes dans Luc 11:
+
+  :sup:`29` Comme la foule s'amassait, il se mit à dire: «Cette génération est une génération mauvaise; elle réclame un signe miraculeux, il ne lui sera pas donné d'autre signe que celui de Jonas [le prophète].
+
+Ce signe de Jonas, c'est celui de la mort et de la résurrection de Jésus. Jésus a commencé à se diriger vers Jérusalem depuis la fin du chapitre 9 déjà:
+
+  :sup:`51` Lorsque approchèrent les jours où il devait être enlevé du monde, Jésus prit la décision de se rendre à Jérusalem.
+
+Et pourquoi se rend-il à Jérusalem? Il l'avait annoncé un peu plus tôt:
+
+  sup:`22` Il ajouta qu'il fallait que le Fils de l'homme souffre beaucoup, qu'il soit rejeté par les anciens, par les chefs des prêtres et par les spécialistes de la loi, qu'il soit mis à mort et qu'il ressuscite le troisième jour.
+
+Le but ultime du ministère de Jésus, c'est la Croix. Le but premier était de prêcher la Bonne Nouvelle, ce qui était nécessaire pour préparer les cœurs et former ses disciples à leur mission. Les miracles ne servaient que de signes, ils attiraient les gens à Lui. Mais ce qui va réellement sauver les croyants, c'est la crucifixion, la mort de Jésus sur la Croix en sacrifice parfait pour nos péchés, et sa résurrection.
+
+Le terme «j'aurai fini» est traduit parfois par «j'achève mon œuvre» (BFC), «je finirai ce que je fais» (PDV), «ce sera pour moi l'achèvement» (Colombe), «j'en aurai fini» (NBS), «c'est fini» (TOB). C'est une idée d'œuvre achevée, de fin, de but accompli et de perfection. Au moment de mourir sur la Croix, Jésus dira: «Tout est accompli» (Jean 19.30).
+
+Et de fait, Jésus l'explique dans notre passage d'aujourd'hui:
+
+  :sup:`33` Mais il faut que je poursuive ma route aujourd'hui, demain et le jour suivant, car il ne convient pas qu'un prophète meure ailleurs qu'à Jérusalem.’
+
+Hérode veut faire mourir Jésus en Pérée pour se débarrasser de Lui, mais Jésus lui répond qu'Il doit encore continuer ce qu'Il fait pendant quelques temps, puis Il mourra, mais cela doit se passer à Jérusalem, pas en Pérée. Et Il dit: «Allez dire ça à Hérode, ce renard.» J'imagine la surprise des pharisiens. Ils viennent annoncer à Jésus qu'Il risque la mort, et au lieu de s'en inquiéter, Jésus répond qu'Il va effectivement mourir, mais pas tout de suite, et en un autre lieu.
+
+  :sup:`34` »Jérusalem, Jérusalem, toi qui tues les prophètes et qui lapides ceux qui te sont envoyés, combien de fois j’ai voulu rassembler tes enfants comme une poule rassemble sa couvée sous ses ailes, et vous ne l'avez pas voulu!
+
+En contraste avec le renard qu'est Hérode, Jésus s'identifie à une poule, qui lieu de chercher à dévorer les poussins, les protège. On raconte qu'une poule s'était retrouvée dans un incendie avec ses poussins. Les poussins se sont réfugiés sous la poule. Le lendemain, on a retrouvé un tas calciné dans la cour: c'était ce qui restait de la poule. En la soulevant, les poussins sont sortis de leur cachette, indemnes.
+
+Jésus souhaite protéger Son peuple, même au prix de Sa propre vie. Mais tous ceux qui ne désirent pas bénéficier de ce sacrifice, parce qu'ils estiment pouvoir se protéger seuls, être suffisamment forts et justes, périront dans les flammes. Et il n'y aura aucune excuse de ne pas avoir accepté cette protection divine. Les gens de Ninive même condamneront les non-croyants au jour du jugement (Luc 11.32) car ils se sont repentis avec bien moins de signes. Même les gens de Sodome seront jugés moins durement que les non-croyants qui ont connu Jésus (Luc 10.12).
+
+Être protégé du jugement par Jésus n'est pas une option, c'est une nécessité. Si nous ne sommes pas protégés par le sang de Jésus, justifiés par son sacrifice, il n'y a aucun espoir pour nous, aucune voie de salut, car nous sommes incapables de gagner le salut par nos propres œuvres. Ce salut est offert, au prix de la vie de Jésus sur la Croix. Il ne tient qu'à nous de l'accepter.
+
+  :sup:`35` Voici que votre maison vous sera laissée [déserte]. Je vous le dis, vous ne me verrez plus jusqu'à ce que vienne le temps où vous direz: ‘Béni soit celui qui vient au nom du Seigneur!’»
+ 
+De quel événement Jésus parle-t-Il au verset 35 quand il parle du temps où ils diront: «Béni soit celui qui vient au nom du Seigneur!»?
+
+On pourrait penser qu'Il parle de l'arrivée à Jérusalem, des Rameaux. Mais on trouve un passage identique dans Matthieu 23:
+
+  :sup:`37` »Jérusalem, Jérusalem, toi qui tues les prophètes et qui lapides ceux qui te sont envoyés! Combien de fois j’ai voulu rassembler tes enfants, comme une poule rassemble ses poussins sous ses ailes, et vous ne l'avez pas voulu!
+  :sup:`38` Voici que votre maison vous sera laissée déserte
+  :sup:`39` car, je vous le dis, vous ne me verrez plus désormais, jusqu'à ce que vous disiez: ‘Béni soit celui qui vient au nom du Seigneur!’»
+
+Cependant, ces deux passages sont dans des contextes très différents. Dans Luc, Jésus se trouve en Pérée, sur le territoire d'Hérode, et est en chemin vers Jérusalem. Dans Matthieu, Jésus se trouve déjà à Jérusalem et sort juste du temple. Il n'est donc pas possible que Jésus se réferre à son arrivée à Jérusalem dans Matthieu, puisqu'Il y est déjà lorsqu'Il dit cela. Il doit donc parler d'un autre événement, en l'occurrence du retour en gloire du Messie à la fin des temps.
+
