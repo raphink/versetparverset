@@ -204,7 +204,7 @@ Jésus est sur le chemin qui le conduit de la Galilée vers Jérusalem, et trave
 
 Jésus compare Hérode à un renard. Que ce soit dans notre culture ou dans la culture juive de l'époque, la comparaison à un renard n'est pas flatteuse. C'est la seule fois que Jésus parle en ces termes d'un responsable politique. Cela dit, Hérode n'était pas vraiment un roi Juif, c'était un roi illégitime.
 
-Depuis la naissance même de Jésus, Hérode se sentait menacé par Jésus annoncé comme roi des Juifs et cherchait à s'en débarrasser. Jésus répond que Hérode (ou les pharisiens qui parlent en son nom) ne doivent pas croire que ce qu'il fait à l'heure actuelle est le but ultime de son ministère. Chasser les démons et faire des guérisons n'est pas le but du ministère de Jésus, ce n'est qu'un signe.
+Depuis la naissance même de Jésus, Hérode le Grand s'était senti menacé par Jésus annoncé comme roi des Juifs et avait cherché à s'en débarrasser. Hérode le Grand est mort depuis, et il s'agit ici de Hérode Antipas (ou le Tétarque), celui qui a fait exécuter Jean le Baptiste (Luc 9.9). Jésus répond que Hérode (ou les pharisiens qui parlent en son nom) ne doivent pas croire que ce qu'il fait à l'heure actuelle est le but ultime de son ministère. Chasser les démons et faire des guérisons n'est pas le but du ministère de Jésus, ce n'est qu'un signe.
 
 Dans Marc 1.35-38:
 
