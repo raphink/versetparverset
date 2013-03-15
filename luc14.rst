@@ -16,13 +16,17 @@ Le chapitre 14 commence par un long récit d'un repas auquel Jésus est invité.
 
 Jésus n'allait pas seulement manger chez des amis. En fait, il lui est arrivé plusieurs fois d'accepter d'aller manger chez des personnes qui l'invitaient assez clairement pour lui tendre un piège. Après les événements récents qui impliquaient des pharisiens (à la synagogue et les pharisiens qui viennent prévenir Jésus que Hérode veut le tuer), beaucoup auraient refusé d'accepter une telle invitation. Mais Jésus s'y rend tout de même. Il sait de toute façon, car il l'a annoncé, que c'est à Jérusalem qu'il doit mourir.
 
+Nous avons tendance à vouloir inviter des non chrétiens à l'église pour qu'ils entendent parler de Jésus, mais Jésus, Lui, se rendait chez les gens pour parler de Dieu. Soyons prêts à nous rendre chez les non chrétiens pour partager avec eux la Bonne Nouvelle que nous avons reçue. Ils seront souvent moins réticents à en parler chez eux que dans une église.
+
 Le repas a lieu un jour de sabbat, et le passage qui suit peut être mis en parallèle avec d'autres guérisons le jour du sabbat, notamment au chapitre 13 (versets 10 à 17).
 
 Il pourrait être très intéressant de jouer ce passage sous forme de pièce de théatre pour bien saisir le caractère presque comique de la situation, car chacun va en «prendre pour son grade» dans les réponses et paraboles de Jésus.
 
   :sup:`2` Or un homme rempli d’œdème se trouvait devant lui.
 
-Certaines traductions disent qu'il était hydropique, ce qui est généralement synonyme d'œdème. On ne sait pas si l'homme était venu pour être guéri, s'il était simplement là de passage, ou si on l'avait placé là pour tenter Jésus.
+Certaines traductions disent qu'il était hydropique, ce qui est généralement synonyme d'œdème. On voit ici la précision que Luc aime ajouter au texte, d'autant plus qu'il était lui-même médecin. On ne sait pas si l'homme était venu pour être guéri, s'il était simplement là de passage, ou si on l'avait placé là pour tenter Jésus.
+
+Cet homme plein d'œdème est en fait rempli d'eau. Cette maladie qui l'accable peut nous faire penser aux deux paraboles du chapitre 13: la parabole de grain de moutarde et la parabole du levain. Dans le cas du grain de moutarde, la plante avait trop grandi, au point d'avoir des branches. Dans le cas du levain, la pâte était remplie d'air due à la fermentation du levain. Ici, le corps de cet homme est rempli d'eau, qui ne sert à rien à son corps, et ne fait que l'encombrer.
 
   :sup:`3` Jésus prit la parole et dit aux professeurs de la loi et aux pharisiens: «Est-il permis [ou non] de faire une guérison le jour du sabbat?»
 
