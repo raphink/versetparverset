@@ -114,4 +114,82 @@ Ici, la parabole va même plus loin. Non seulement il faut répondre à l'invita
 Jésus est venu pour nous réconcilier avec Dieu, et en payant sur la Croix le prix de nos péchés, nous offrir la vie éternelle dans la présence de Dieu. Si nous avons accepté Son invitation et qu'Il est devenu notre Sauveur et Seigneur, nous sommes sauvés pour l'éternité. Mais notre relation restaurée avec Dieu par et avec Jésus ne commence pas à notre mort. Dès à présent, nous avons accès au Père par le nom de Jésus, et nous pouvons nous reposer avec paix et joie dans sa présence, en le louant et en l'adorant, et en venant partager à sa table le repas de fête qu'Il prépare pour nous chaque jour dans Sa Parole.
 
 
+L'engagement du disciple (Lc 14.25-35)
+=======================================
+
+  :sup:`25` De grandes foules faisaient route avec Jésus. Il se retourna et leur dit:
+  :sup:`26` «Si quelqu'un vient à moi sans me préférer à son père, sa mère, sa femme, ses enfants, ses frères et ses sœurs, et même à sa propre vie, il ne peut pas être mon disciple.
+  :sup:`27` Celui qui ne porte pas sa croix et ne me suit pas ne peut pas être mon disciple.
+
+Jésus est en chemin vers Jérusalem. Le peuple qui le reconnais comme le Messie s'attend à ce qu'il soit courroné roi d'Israël et chasse les Romains du pays. Il voient ses miracles et penses qu'il s'agit là du centre de son ministère. S'ils ont laissé leurs familles derrière, c'est dans l'espoir de voir l'avènement du Messie roi, d'avoir peut-être une part au royaume, et de revenir ensuite vers leurs familles. Ils ne comprennent pas la vraie nature du ministère de Jésus: mourrir sur la Croix en expiation pour les péchés du monde, seul et abandonné de tous. Ils ne comprennent pas non plus les conséquences d'être un disciple de Jésus: le rejet, les tribulations qui vont être les conséquences d'être associé à son nom.
+
+Le texte grec (et certaines traductions, notamment anglaises), utilisent le mot «haïr», beaucoup plus fort de sens que «préférer à».
+
+«Pourquoi avez-vous quitté vos familles pour me suivre? demande Jésus. Comprenez-vous réellement la nature et les conséquences d'être mon disciple?» À part Jean (qui a survécu aux tortures) et Judas (qui s'est pendu), les apôtres sont tous morts d'une mort violente, sous la torture.
+
+Une autre manière de comprendre ce verset est de considéré que la manière d'aimer à laquelle Jésus nous appelle peut être parfois vue comme de la haine. Jésus lui-même, alors que son ami Lazare étant en train de mourir, a choisi d'attendre avant d'aller le voir, de sorte que lorsqu'il est arrivé sur place, Lazare était déjà mort et Marie s'est écriée: «Seigneur, si tu avais été ici, mon frère ne serait pas mort» (Jean 11.31). Beaucoup ont dû prendre ce choix de Jésus pour de la haine, mais c'était faire la volonté de Dieu.
+
+Parfois, Dieu nous demande d'agir de façons que le monde ne peut pas comprendre, et qui peuvent être interprétées comme de la haine vis-à-vis de ceux que nous aimons. Jésus nous demande d'être prêts à assumer d'être vus comme des personnes qui haïssent, pour la gloire de Dieu.
+
+Il y a quelques mois, j'ai eu une discussion sur Facebook avec une amie de longue date au sujet de l'homosexualité. Après lui avoir exposé ce que la Bible dit à ce sujet, elle s'est exclamée: «Je ne savais pas que tu étais si rempli de haine!» Le message de la Bible n'est un message neutre, et Jésus n'y a pas été «avec le dos de la cuillère», comme nous avons vu dans les chapitres 13 et 14. Ce n'était pas par haine, mais par amour, et par obéissance à Dieu. Soyons prêts à suivre Dieu, même si cela nous fait passer pour des personnes sans amour, car nous savons que c'est Dieu qui est amour.
+
+Avoir avoir dit cela, Jésus donne deux exemples:
+
+  :sup:`28` En effet, si l'un de vous veut construire une tour, il s'assied d'abord pour calculer la dépense et voir s'il a de quoi la terminer.
+  :sup:`29` Autrement, si après avoir posé les fondations il ne peut pas la terminer, tous ceux qui le verront se mettront à se moquer de lui
+  :sup:`30` en disant: ‘Cet homme a commencé à construire, et il n'a pas pu finir.’
+
+D'abord, il donne un exemple positif, d'un homme qui veut construire une tour pour sa maison. Avant de dépenser ce qu'il a dans le chantier, l'homme doit d'abord s'assurer que ses moyens seront suffisants pour terminer le chantier, sinon on se moquera de lui pour avoir dépensé son argent dans une construction qu'il n'avait pas les moyens de terminer.
+
+Jésus explique que le coût pour le suivre n'est pas anodin. Dans Marc 10, Jésus a dit:
+
+  :sup:`29` […] «Je vous le dis en vérité, personne n'aura quitté à cause de moi et à cause de la bonne nouvelle sa maison ou ses frères, ses sœurs, sa mère, son père, [sa femme,] ses enfants ou ses terres,
+  :sup:`30` sans recevoir au centuple, dans le temps présent, des maisons, des frères, des sœurs, des mères, des enfants et des terres, avec des persécutions et, dans le monde à venir, la vie éternelle.
+
+«Vous quittez vos familles pour me suivre, dit Jésus. Soyez sûrs que c'est pour la bonne raison, car vous recevrez des bénédictions, mais aussi des persécutions. Assurez-vous d'avoir les moyens de terminer cette course.» 
+
+Jésus lui-même, après son baptème et avant de commencer son ministère, s'est reccueilli au désert. Combien plus devons-nous nous recceuillir et méditer, afin de nous assurer que nous avons assez d'huile pour attendre son retour (cf. Matthieu 25.1-12).
+
+  :sup:`31` De même, si un roi part en guerre contre un autre roi, il s'assied d'abord pour examiner s'il peut, avec 10'000 hommes, affronter celui qui vient l'attaquer avec 20'000.
+  :sup:`32` Si ce n’est pas le cas, alors que l'autre roi est encore loin, il lui envoie une ambassade pour demander la paix.
+
+Jésus donne un deuxième exemple, d'un roi qui part en guerre contre un autre roi, et doit s'assurer d'avoir les moyens de combattre son ennemi. Nous sommes aussi des soldats de Dieu, et il nous équipe d'une armure, selon Éphésiens 6:
+
+  :sup:`11` Revêtez-vous de toutes les armes de Dieu afin de pouvoir tenir ferme contre les manœuvres du diable.
+  :sup:`12` En effet, ce n’est pas contre l’homme que nous avons à lutter, mais contre les puissances, contre les autorités, contre les souverains de ce monde de ténèbres, contre les esprits du mal dans les lieux célestes.
+  :sup:`13` C'est pourquoi, prenez toutes les armes de Dieu afin de pouvoir résister dans le jour mauvais et tenir ferme après avoir tout surmonté.
+  :sup:`14` Tenez donc ferme: ayez autour de votre taille la vérité en guise de ceinture; enfilez la cuirasse de la justice;
+  :sup:`15` mettez comme chaussures à vos pieds le zèle pour annoncer l'Evangile de paix;
+  :sup:`16` prenez en toute circonstance le bouclier de la foi, avec lequel vous pourrez éteindre toutes les flèches enflammées du mal;
+  :sup:`17` faites aussi bon accueil au casque du salut et à l'épée de l'Esprit, c’est-à-dire la parole de Dieu.
+
+Notre ennemi, ce sont «les puissances, les autorités, les souverains de ce monde de ténèbres, les esprits du mal dans les lieux célèstes.» Avons-nous les moyens de mener bataille contre cet ennemi? Oui, si nous sommes équipés de l'armure que Dieu nous fournit, non si nous tentons de combatttre par nous-mêmes. 
+
+  :sup:`33` Ainsi donc aucun de vous, à moins de renoncer à tout ce qu'il possède, ne peut être mon disciple.
+
+Ne croyez pas que devenir chrétien est chose aisée, et encore moins que cela va vous garantir une prospérité matérielle. La promesse de Jésus pour ses disciples est tout le contraire, il leur a promis des persécutions.
+
+S'agit-il ici de faire vœu de pauvreté? Le vœu de pauvreté n'est pas un mal en soi, mais il ne s'agit pas ici de renoncer à jouir de biens matériels. Plutôt, il s'agirait de ne pas les posséder.
+
+Paul explique cela dans 1 Timothée 6:
+
+  :sup:`17` Aux riches de ce monde, ordonne de ne pas être orgueilleux et de ne pas mettre leur espérance dans des richesses incertaines, mais dans le Dieu [vivant,] qui nous donne tout avec abondance pour que nous en jouissions.
+
+Et encore dans l'épitre aux Éphésiens:
+
+  :sup:`3` Que l’immoralité sexuelle, l’impureté sous toutes ses formes ou la soif de posséder ne soient même pas mentionnées parmi vous, comme il convient à des saints.
+
+Il s'agit ici de convoitise, et de foi dans les biens matériels.
+
+Abraham «possédait» un fils, Isaac, pendant les premières années de sa vie. C'était son fils chéri, l'accomplissement de la promesse de Dieu de lui donner un héritier avec Sarah. Mais un jour, Dieu lui a demandé de renoncer à ce fils en le lui sacrifiant sur le mont Moriah (probablement au lieu-même où Jésus a été crucifié 2000 ans plus tard). Contre toute attente, Abraham a choisi d'obéir à Dieu. Aux yeux du monde, Abraham a «haï» son fils pour l'amour de Dieu. À l'instant ultime, Dieu a arrêté son geste et lui a rendu son fils. Ayant offert son fils à Dieu, Abraham ne le possédait plus, il savait qu'il n'avait ce fils à ses côtés que par la grâce de Dieu.
+
+Renoncez à ce que vous possédez, confiez-le à Dieu, comme Abraham a renoncé à son fils à la demande de Dieu, et Dieu le lui a rendu. Prenez conscience que tout ce que vous avez est une grâce de Dieu — votre maison, votre nourriture, votre travail, vos capacités, vos relations, vos enfants, etc. —, et remerciez-le pour tout! Alors vous aurez accès à toutes les richesses de Dieu, sans vivre de l'esclavage de la possession, car celui qui possède se rend esclave de ce qu'il a, mais celui qui donne la gloire à Dieu pour ce qu'il a devient héritier selon la richesse de Dieu.
+
+
+  :sup:`34` »Le sel est une bonne chose, mais si le sel perd sa saveur, avec quoi la lui rendra-t-on?
+  :sup:`35` Il n'est bon ni pour la terre, ni pour le fumier; on le jette dehors. Que celui qui a des oreilles pour entendre entende.»
+
+«Vous êtes le sel de la terre, vous êtes la lumière du monde», dit Jésus dans Matthieu 13 (paraphrase). Ne perdez pas votre saveur, ne cachez pas votre lumière.
+
+Si vous donniez un morceau de sel à quelqu'un qui n'y a jamais goûté, il serait probablement choqué par son goût très fort. Qui penserait utiliser ça pour cuisiner, cela gâcherait la nourriture! Mais loin de gâcher le goût des autres aliments, le sel le fait ressortir. Il ne couvre pas les autres goûts, il les met en valeur! Si nous sommes le sel de la terre, nous devons être ce qui donne le goût à ce monde. Par notre attachement àDieu, par notre joie et par le fruit de l'esprit, l'amour (Galates 5.22), nous devons faire ressortir la gloire de Dieu dans ce monde. Mais si nous perdons notre saveur, si le fruit de l'esprit n'est plus manifest dans nos vies, nous sommes comme du sel sans saveur. Il ne sert à rien, et on le jette dehors.
 
