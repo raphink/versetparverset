@@ -6,14 +6,14 @@ LATEX_DOCUMENTOPTIONS=fontsize=12pt
 LATEX_DOCUMENTCLASS=scrartcl
 
 KINDLE_PATH=/documents/raphael
-DOCUMENT=luc8
+SOURCES=$(wildcard *.rst)
 AUTHOR=Raphaël Pinson
 LANGUAGE=fr
 PUBDATE=$(shell date)
 
 EBOOK_CONVERT_OPTS=--authors "$(AUTHOR)" --language "$(LANGUAGE)" --pubdate "$(PUBDATE)" --keep-ligatures
 
-all: $(DOCUMENT).pdf
+all: $(SOURCES:.rst=.pdf) $(SOURCES:.rst=.epub)
 
 kindle: $(DOCUMENT)-to-kindle
 
