@@ -5,7 +5,7 @@
 Fidèle dans les petites choses (Lc 16.1-13)
 ===========================================
 
-Quel est le sujet que Jésus a le plus abordé dans son ministère? L'argent! Un sixième des évangiles selon Matthieu, Marc et Luc parlent de l'argent, et douze et trente-huit paraoles. Pourquoi? Parce que Jésus savait que l'argent est un problème majeur pour nous. Il est la cause de la majorité de nos soucis, la raison de la majorité de nos efforts, et la source de beaucoup de péchés et d'injustices. Paul le rappelait à Timothée en 1 Tim 6.10:
+Quel est le sujet que Jésus a le plus abordé dans son ministère? L'argent! Un sixième des évangiles selon Matthieu, Marc et Luc parlent de l'argent, et douze des trente-huit paraboles. Pourquoi? Parce que Jésus savait que l'argent est un problème majeur pour nous. Il est la cause de la majorité de nos soucis, la raison de la majorité de nos efforts, et la source de beaucoup de péchés et d'injustices. Paul le rappelait à Timothée en 1 Tim 6.10:
 
     « L'amour de l'argent est en effet à la racine de tous les maux. En s’y livrant, certains se sont égarés loin de la foi et se sont infligé eux-mêmes bien des tourments. »
 
