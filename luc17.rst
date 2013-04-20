@@ -91,4 +91,33 @@ Le passage dans Luc parle d'un mûrier plutôt que d'une montagne. Il est possib
     :sup:`21` Jésus leur dit alors: «Je vous le dis en vérité, si vous avez de la foi et que vous ne doutez pas, non seulement vous ferez ce qui a été fait à ce figuier, mais même si vous dites à cette montagne: ‘Retire-toi de là et jette-toi dans la mer’, cela arrivera.
     :sup:`22` Tout ce que vous demanderez avec foi par la prière, vous le recevrez.»
 
+Ce passage met aussi en avant l'importance de la parole, car Jésus nous encourage à nous adresser au figuier ou à la montagne.
+
+Comment Dieu a-t-il créé le monde? En parlant:
+
+    :sup:`3` Dieu dit: «Qu’il y ait de la lumière!» et il y eut de la lumière.
+
+Jésus lui-même est la Parole éternelle incarnée, faite chair, selon Jean 1:
+
+    :sup:`14` Et la Parole s'est faite homme, elle a habité parmi nous, pleine de grâce et de vérité, et nous avons contemplé sa gloire, une gloire comme celle du Fils unique venu du Père.
+
+Il l'a montré dans son ministère, en parlant à la création:
+
+    «Il se réveilla, menaça le vent et dit à la mer: «Silence! Tais-toi!» Le vent tomba et il y eut un grand calme» (Marc 4.39)
+
+    «Que jamais plus tu ne portes de fruit!» (Matthieu 21.19)
+
+    «Après avoir dit cela, il cria d'une voix forte: «Lazare, sors!» (Jean 11.43)
+
+La condition du salut passe également par la parole (Romains 10):
+
+    :sup:`8` […] La parole est tout près de toi, dans ta bouche et dans ton cœur. Or cette parole est celle de la foi, que nous prêchons.
+    :sup:`9` Si tu reconnais publiquement de ta bouche que Jésus est le Seigneur et si tu crois dans ton cœur que Dieu l'a ressuscité, tu seras sauvé.
+
+Nous sommes appelés à garder la Parole de Dieu dans nos bouches et à la proclamer, comme Dieu l'a ordonné à Moïse:
+
+    «Et l'Éternel dit à Moïse : Pourquoi cries-tu à moi ? Parle aux enfants d'Israël, et qu'ils marchent» (Exode 14.15, Ostervald)
+
+Proclamez avec foi la Parole de Dieu autour de vous, afin que tous marchent selon les voies de Dieu, et qu'Il accomplisse des miracles!
+
 
