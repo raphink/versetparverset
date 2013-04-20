@@ -2,8 +2,8 @@
 Évangile selon Luc, chapitre 17
 ================================
 
-La foi simple des enfants (Lc 17.1-10)
-=======================================
+La foi simple des enfants (Lc 17.1-6)
+=====================================
 
 
     :sup:`1` Jésus dit à ses disciples: «Il est inévitable qu'il y ait des pièges, mais malheur à celui qui en est responsable!
