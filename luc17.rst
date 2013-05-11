@@ -121,3 +121,25 @@ Nous sommes appelés à garder la Parole de Dieu dans nos bouches et à la procl
 Proclamez avec foi la Parole de Dieu autour de vous, afin que tous marchent selon les voies de Dieu, et qu'Il accomplisse des miracles!
 
 
+
+Les signes de la fin (Lc 17.20-37)
+==================================
+
+    :sup:`20` Les pharisiens demandèrent à Jésus quand viendrait le royaume de Dieu. Il leur répondit : Le royaume de Dieu ne vient pas de manière à frapper les regards.
+    :sup:`21` On ne dira point : Il est ici, ou : Il est là. Car voici, le royaume de Dieu est au milieu de vous.
+    :sup:`22` Et il dit aux disciples : Des jours viendront où vous désirerez voir l'un des jours du Fils de l'homme, et vous ne le verrez point.
+    :sup:`23` On vous dira : Il est ici, il est là. N'y allez pas, ne courez pas après.
+    :sup:`24` Car, comme l'éclair resplendit et brille d'une extrémité du ciel à l'autre, ainsi sera le Fils de l'homme en son jour.
+    :sup:`25` Mais il faut auparavant qu'il souffre beaucoup, et qu'il soit rejeté par cette génération.
+    :sup:`26` Ce qui arriva du temps de Noé arrivera de même aux jours du Fils de l'homme.
+    :sup:`27` Les hommes mangeaient, buvaient, se mariaient et mariaient leurs enfants, jusqu'au jour où Noé entra dans l'arche ; le déluge vint, et les fit tous périr.
+    :sup:`28` Ce qui arriva du temps de Lot arrivera pareillement. Les hommes mangeaient, buvaient, achetaient, vendaient, plantaient, bâtissaient ;
+    :sup:`29` mais le jour où Lot sortit de Sodome, une pluie de feu et de souffre tomba du ciel, et les fit tous périr.
+    :sup:`30` Il en sera de même le jour où le Fils de l'homme paraîtra.
+    :sup:`31` En ce jour-là, que celui qui sera sur le toit, et qui aura ses effets dans la maison, ne descende pas pour les prendre ; et que celui qui sera dans les champs ne retourne pas non plus en arrière.
+    :sup:`32` Souvenez-vous de la femme de Lot.
+    :sup:`33` Celui qui cherchera à sauver sa vie la perdra, et celui qui la perdra la retrouvera.
+    :sup:`34` Je vous le dis, en cette nuit-là, de deux personnes qui seront dans un même lit, l'une sera prise et l'autre laissée ;
+    :sup:`35` de deux femmes qui moudront ensemble, l'une sera prise et l'autre laissée.
+    :sup:`36` De deux hommes qui seront dans un champ, l'un sera pris et l'autre laissé.
+    :sup:`37` Les disciples lui dirent : Où sera-ce, Seigneur ? Et il répondit : Où sera le corps, là s'assembleront les aigles.
