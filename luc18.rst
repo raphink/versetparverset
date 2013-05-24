@@ -55,7 +55,9 @@ Dieu a maintenant mis la Loi dans nos cœurs par l'Esprit-Saint. Nous ne *dépen
 
     :sup:`21` «J'ai respecté tous ces commandements dès ma jeunesse», dit-il.
 
-Rappelez-vous, Jésus n'a cité que 5 commandements. En particulier, il n'a pas cité le commandement concernant la convoitise, sachant que cet homme avait un problème avec les biens matériels. Cet homme comprenait évidemment les commandements dans leur sens matériel, physique, et non spirituel tel que Jésus les enseignait (Matthieu 5, «vous avez appris… mais moi je vous dis»).
+C'est une réponse candide, voire ignorante. Cet homme comprenait évidemment les commandements dans leur sens matériel, physique, et non spirituel tel que Jésus les enseignait (Matthieu 5, «vous avez appris… mais moi je vous dis»). Marc ajoute: «Et Jésus, l'ayant regardé, l'aima.»
+
+Rappelez-vous, Jésus n'a cité que 5 commandements. En particulier, il n'a pas cité le commandement concernant la convoitise, sachant que cet homme avait un problème avec les biens matériels.
 
     :sup:`22` Après avoir entendu [cela], Jésus lui dit: «Il te manque encore une chose: vends tout ce que tu as, distribue-le aux pauvres, et tu auras un trésor dans le ciel. Puis viens et suis-moi.»
     :sup:`23` Lorsqu'il entendit ces paroles, l’homme devint tout triste, car il était très riche.
@@ -75,12 +77,29 @@ Les disciples sont choqués par la réponse de Jésus. Si les hommes les plus b�
 Jésus ne contredit pas la question de ses disciples. Au contraire, il confirme leur interprétation: c'est impossible. C'est la le verdict de la Loi: personne ne peut se justifier par la vertu des œuvres de la Loi, quels que soient ses efforts. Le salut est *impossible* aux hommes, mais pas à Dieu.
 
     :sup:`28` Pierre dit alors: «Voici, nous avons tout quitté et nous t'avons suivi.»
+
+Pierre a visiblement bien compris qu'il lui était impossible d'être sauvé par lui-même. Le fait qu'il a tout quitté pour suivre Jésus permet-il à Dieu de faire ce qui est impossible à Pierre? Ce sacrifice, précisément celui que Jésus demandait au chef de la synagogue de faire, est-il suffisant?
+
     :sup:`29` Jésus leur dit: «Je vous le dis en vérité, personne n'aura quitté à cause du royaume de Dieu sa maison ou sa femme, ses frères, ses parents ou ses enfants
     :sup:`30` sans recevoir beaucoup plus dans le temps présent et, dans le monde à venir, la vie éternelle.»
+
+Si la question déguisée de Pierre concernait le groupe restreint des apôtres, la réponse de Jésus concerne toute personne qui s'est affranchie de ses attachements charnels pour le royaume de Dieu. Toutes ces richesses qui ont été abandonnées (dans les mains de Dieu) trouvent un équivalent dans le royaume. Avez-vous laissé une maison pour suivre Dieu? Vous en aurez plusieurs, lorsque les saints vous acceuillerons chez eux comme votre propre maison, aux quatre coins du monde! Avez-vous laissé une famille? Vous aurez des milliers de frères, et de sœurs et de parents en Christ dans l'Église!
+
     :sup:`31` Jésus prit les douze avec lui et leur dit: «Nous montons à Jérusalem et tout ce qui a été écrit par les prophètes au sujet du Fils de l'homme va s'accomplir.
     :sup:`32` En effet, il sera livré aux non-Juifs, on se moquera de lui, on l'insultera, on crachera sur lui
     :sup:`33` et, après l'avoir fouetté, on le fera mourir; le troisième jour il ressuscitera.»
+
+Jésus a pris les disciples à part, probablement à Éphraïm, peu avant son entrée à Jérusalem (Jean 11.54). C'est déjà la troisième fois que Jésus annonce ces événements (cf. 9.22 et 9.44). Le passage en 9.22 était d'ailleurs similaire à celui qu'on vient de lire concernant l'homme riche, puisque Jésus y enseignait:
+
+    :sup:`23` Si quelqu'un veut être mon disciple, qu'il renonce à lui-même, qu'il se charge [chaque jour] de sa croix et qu'il me suive,
+    :sup:`24` car celui qui voudra sauver sa vie la perdra, mais celui qui la perdra à cause de moi la sauvera.
+
+Ce que les hommes ne peuvent pas faire par eux-mêmes en abandonnant complètement leur vie pour suivre Jésus, Jésus l'a fait lorsqu'Il a quitté les lieux célestes pour accomplir parfaitement la volonté de Son Père en devenant homme, en souffrant les tentations humaines, en accomplissant parfaitement la Loi, en mourrant sur une croix accablé du péché du monde, afin de sauver nos vies.
+
     :sup:`34` Mais les disciples ne comprirent rien à cela: c'était pour eux un langage obscur, des paroles dont ils ne saisissaient pas le sens.
+
+Les disciples s'attendent toujours à ce que Jésus soit couronné roi. Il va bientôt entrer en gloire dans Jérusalem, acceuilli comme le Messie Roi, et personne ne semble s'attendre à ce qu'Il soit battu et crucifié. Il prépare cependant ses disciples, afin qu'ils se rappellent de ses paroles après sa résurrection.
+
     :sup:`35` Comme Jésus était près de Jéricho, un aveugle était assis au bord du chemin et mendiait.
     :sup:`36` Il entendit la foule passer et demanda ce qui se passait.
     :sup:`37` On lui dit: «C'est Jésus de Nazareth qui passe.»
