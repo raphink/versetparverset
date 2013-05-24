@@ -22,16 +22,58 @@ Nouveau titre
     :sup:`15` Des gens lui amenaient même de tout petits enfants afin qu'il les touche, mais les disciples, en voyant cela, leur firent des reproches.
     :sup:`16` Jésus appela les enfants et dit: «Laissez les petits enfants venir à moi et ne les en empêchez pas, car le royaume de Dieu est pour ceux qui leur ressemblent.
     :sup:`17` Je vous le dis en vérité, celui qui n’accueille pas le royaume de Dieu comme un petit enfant n'y entrera pas.»
+
+Comment suivre Jésus (Lc 18.18-43)
+==================================
+
+Toujours dans la continuité des enseignements de Jésus sur la foi, Jésus enseigne les conditions pour le suivre et l'application de la Loi.
+
     :sup:`18` Un chef interrogea Jésus et dit: «Bon maître, que dois-je faire pour hériter de la vie éternelle?»
     :sup:`19` Jésus lui répondit: «Pourquoi m'appelles-tu bon? Personne n'est bon, si ce n'est Dieu seul.
+
+Certaines personnes rejettent la divinité de Jésus mais pensent qu'il était une bonne personne, un bon prophète. Jésus lui-même rejette cette possbilité. Seul Dieu est bon, donc Jésus est soit Dieu, soit il n'est pas bon.
+
+Jésus semble ici indiquer qu'il n'est pas Dieu en corrigeant le titre de «bon» que cet homme lui donne. En fait, cet homme (probablement un chef de la synagogue) vient le voir en tant qu'homme, pour avoir un conseil sur l'application matérielle de la loi. La question de cet homme est de savoir quelle œuvre il doit faire pour avoir le salut, la vie éternelle. Il cherche sa propre justification,  comment être bon. Jésus lui répond donc que personne n'est bon, si ce n'est Dieu, ce qui le rappelle à l'humilité et permet de le diriger vers la seule porte de salut: Jésus lui-même. Ainsi, par recoupement, on voit également que Jésus affirme en fait qu'Il est Dieu, car celui qui dit «mauvais comme vous l'êtes» (Luc 11.13), «Il faut que vous naissiez de nouveau» (Jean 3.7) et «je fais toujours ce qui lui est à agréable» (Jean 8.29) peut-il être mauvais? Jésus est bon parce qu'Il procède de Dieu et est en communion constante avec le Père:
+
+    Je ne peux rien faire de moi-même: je juge d'après ce que j'entends, et mon jugement est juste parce que je ne cherche pas à faire ma volonté, mais celle du Père qui m'a envoyé. (Jean 5.30)
+
     :sup:`20` Tu connais les commandements: Tu ne commettras pas d'adultère; tu ne commettras pas de meurtre; tu ne commettras pas de vol; tu ne porteras pas de faux témoignage; honore ton père et ta mère.»
+
+Jésus parle ensuite de la Loi de Moïse, dont il cite quelques commandements. Il n'en cite en fait que 5 parmi les 10, et ommet ainsi un commandement important qui s'applique au chef de la synagogue: «tu ne convoiteras pas».
+
+À la lecture de l'Épître aux Galates, nous comprenons que le sacrifice de Jésus nous a délivré de la malédiction de la Loi, qui était notre pédagogue avant la venue du Messie:
+
+    En effet tous ceux qui dépendent des œuvres de la loi sont sous la malédiction, car il est écrit: Maudit soit tout homme qui ne reste pas fidèle à tout ce qui est écrit dans le livre de la loi pour le mettre en pratique.
+
+Pourquoi donc Jésus se réferre-t-il à la Loi, si elle est une malédiction pour nous? Les mots clés de ce verset sont: «ceux qui *dépendent* des œuvres de la loi». La Loi en elle-même est bonne, elle montre la volonté de Dieu. Elle est une malédiction pour nous car sa perfection nous condamne dans notre imperfection à l'accomplir. Elle est une malédiction pour nous si nous *dépendont* des œuvres de la loi pour notre salut. Mais c'est en accomplissant parfaitement la Loi que Jésus est mort pour nous, en portant nos péchés dans la perfection de son obéissance à Dieu, alors que nous étions incapable d'obéir à Dieu par nous-mêmes. Si nous restons sous la Loi, si nous *dépendons* de nos œuvres sous la Loi pour notre salut, alors nous sommes irrémédiablement condamnés. Si au contraire nous dépendons du sacrifice parfait de Jésus-Christ par la foi, alors Il a payé pour nous par son obéissance parfaite, et nous pouvons être sauvé. La Loi reste bonne, mais nous sommes libérés de la malédiction d'être incapables par nous-mêmes de nous justifier par nos œuvres sous la Loi. L'Esprit-Saint devient alors une Loi pour nous, selon la prophétie de Jérémie (31):
+
+
+    :sup:`33` Mais voici l'alliance que je ferai avec la communauté d'Israël après ces jours-là, déclare l'Eternel: je mettrai ma loi à l’intérieur d'eux, je l'écrirai dans leur cœur, je serai leur Dieu et ils seront mon peuple.
+    :sup:`34` Personne n'enseignera plus son prochain ni son frère en disant: «Vous devez connaître l'Eternel!» car tous me connaîtront, depuis le plus petit jusqu'au plus grand d’entre eux, déclare l'Eternel. En effet, je pardonnerai leur faute et je ne me souviendrai plus de leur péché.
+
+Dieu a maintenant mis la Loi dans nos cœurs par l'Esprit-Saint. Nous ne *dépendons* plus de la Loi pour notre salut, mais nous l'accomplissons selon la volonté de Dieu manifestée en nous par l'Esprit-Saint.
+
     :sup:`21` «J'ai respecté tous ces commandements dès ma jeunesse», dit-il.
+
+Rappelez-vous, Jésus n'a cité que 5 commandements. En particulier, il n'a pas cité le commandement concernant la convoitise, sachant que cet homme avait un problème avec les biens matériels. Cet homme comprenait évidemment les commandements dans leur sens matériel, physique, et non spirituel tel que Jésus les enseignait (Matthieu 5, «vous avez appris… mais moi je vous dis»).
+
     :sup:`22` Après avoir entendu [cela], Jésus lui dit: «Il te manque encore une chose: vends tout ce que tu as, distribue-le aux pauvres, et tu auras un trésor dans le ciel. Puis viens et suis-moi.»
     :sup:`23` Lorsqu'il entendit ces paroles, l’homme devint tout triste, car il était très riche.
+
+Jésus connaissait le cœur de cet homme. Ce qu'il lui demande ici relève du commandement concernant la convoitise, dans son sens spirituel. Ce n'est pas un poids que Jésus met sur cet homme, il lui propose au contraire une libération de son esclavage aux biens matériels, de son péché de convoitise. La Loi condamne tout homme car «personne ne sera considéré comme juste devant lui sur la base des œuvres de la loi, puisque c'est par l’intermédiaire de la loi que vient la connaissance du péché» (Romains 3.20). Comme le dit Paul dans l'Épître aux Galates: «c'est la loi qui m’a amené à mourir à la loi afin de vivre pour Dieu» (Galates 2.19).
+
+Faut-il comprendre que Jésus demande de chacun de faire vœu de pauvreté pour pouvoir le suivre? Non, il s'agit ici d'un cas particulier. Jésus veut nous libérer de ce qui nous enchaîne dans le péché, afin que nous soyons libres de la suivre. Dans le cas de cet homme, il s'agissait des biens matériels. Ce n'étaient pas ses biens qui le servaient, mais bien lui qui était au service de ses biens. Cet homme était prêt à refuser la bénédiction de suivre Jésus, de faire partie du groupe des disciples qui allaient fonder l'Église naissante, pour conserver ses biens qui seraient probablement détruits et pillés par les romains quelques années plus tard.
+
     :sup:`24` Voyant qu'il était devenu tout triste, Jésus dit: «Qu'il est difficile à ceux qui ont des richesses d'entrer dans le royaume de Dieu!
     :sup:`25` En effet, il est plus facile à un chameau de passer par un trou d'aiguille qu'à un riche d'entrer dans le royaume de Dieu.»
     :sup:`26` Ceux qui l'écoutaient dirent: «Qui donc peut être sauvé?»
+
+Les disciples sont choqués par la réponse de Jésus. Si les hommes les plus bénis, les plus favorisés par Dieu, et par conséquent probablement les plus purs, ne peuvent pas être sauvés, alors comment les autres le seront-ils? Et s'il s'agit d'un problème de convoitise, quel homme n'a jamais désiré la richesse?
+
     :sup:`27` Jésus répondit: «Ce qui est impossible aux hommes est possible à Dieu.»
+
+Jésus ne contredit pas la question de ses disciples. Au contraire, il confirme leur interprétation: c'est impossible. C'est la le verdict de la Loi: personne ne peut se justifier par la vertu des œuvres de la Loi, quels que soient ses efforts. Le salut est *impossible* aux hommes, mais pas à Dieu.
+
     :sup:`28` Pierre dit alors: «Voici, nous avons tout quitté et nous t'avons suivi.»
     :sup:`29` Jésus leur dit: «Je vous le dis en vérité, personne n'aura quitté à cause du royaume de Dieu sa maison ou sa femme, ses frères, ses parents ou ses enfants
     :sup:`30` sans recevoir beaucoup plus dans le temps présent et, dans le monde à venir, la vie éternelle.»
