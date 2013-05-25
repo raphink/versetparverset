@@ -132,4 +132,11 @@ Qui a accompli le miracle? N'est-ce pas Jésus? Et pourtant, il dit: «*ta* foi 
 
 Le chef de la synagogue que Jésus avait appelé à la suivre est reparti tout triste car il n'a pas voulu faire ce pas de foi. Bartimée, lui, s'est mis à suivre Jésus avec joie en célébrant la gloire de Dieu. Quel constrate!
 
+L'histoire de Bartimée nous résume ici tous les enseignements précédents sur la foi:
+
+* Comme la veuve, Bartimée a *persévéré* dans sa prière jusqu'à obtenir justice;
+* Comme le péager, Bartimée a fait preuve *d'humilité* en criant: «Aie pitié de moi!»;
+* Comme les enfants, Bartimée a fait preuve d'une *foi simple* et on a essayé de l'empêcher d'accéder à Jésus;
+* Contrairement au chef de la synagogue, Bartimée n'a pas cherché à se justifier par la *Loi*. Par la *foi*, il a été prêt à *tout laisser* derrière pour venir à Jésus;
+* Comme Jésus l'annonçait à ses disciples, en laissant tout derrière pour Le suivre, Bartimée a gagné bien plus que ce qu'il avait laissé, et il a suivi Jésus avec *joie* en *glorifiant Dieu*.
 
