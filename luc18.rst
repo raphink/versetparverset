@@ -104,8 +104,32 @@ Les disciples s'attendent toujours à ce que Jésus soit couronné roi. Il va bi
     :sup:`36` Il entendit la foule passer et demanda ce qui se passait.
     :sup:`37` On lui dit: «C'est Jésus de Nazareth qui passe.»
     :sup:`38` Alors il cria: «Jésus, Fils de David, aie pitié de moi!»
+
+Cet aveugle, Bartimée («fils de Timée», Matthieu 10.46), reconnais que Jésus est le Fils de David, le Messie, et il lui adresse la même prière que le péager faisait à Dieu au verset 13: «Aie pitié de moi!»
+
     :sup:`39` Ceux qui marchaient devant le reprenaient pour le faire taire, mais il criait beaucoup plus fort: «Fils de David, aie pitié de moi!»
+
+Tout comme la veuve auprès du juge injuste, Bartimée fait preuve de persévérance dans sa foi. Il crie fort, de sorte que tout le monde l'entend et l'encourage à se taire et l'empêche d'accéder à Jésus (comme les disciples empêchaient les enfants de venir à Lui).
+
     :sup:`40` Jésus s'arrêta et ordonna qu'on le lui amène; quand il fut près de lui, il lui demanda:
     :sup:`41` «Que veux-tu que je fasse pour toi?» Il répondit: «Seigneur, que je retrouve la vue.»
+
+Jésus entend Bartimée crier plus fort que la foule, le fait venir et lui demande ce qu'il veut. Jésus sait probablement déjà ce que je Bartimée veut (d'autant plus que son handicap est visible), mais il lui demande d'exprimer sa prière, par la foi. Dans Marc 10, on voit la réaction de Bartimée:
+
+    :sup:`50` L'aveugle jeta son manteau et, se levant d'un bond, vint vers Jésus.
+
+Il jette son manteau, il laisse tout derrière, précisément ce que Jésus avait demandé au chef de la synagogue précédemment. Bartimée est certain qu'il n'a plus besoin de son manteau, de ses biens, si Jésus l'a appelé.
+
     :sup:`42` Jésus lui dit: «Retrouve la vue, ta foi t'a sauvé.»
+
+Qui a accompli le miracle? N'est-ce pas Jésus? Et pourtant, il dit: «*ta* foi t'a sauvé». C'est la foi qui a été la condition du salut pour Bartimée, et cette foi s'est exprimée en plusieurs points:
+
+* Il a proclamé Jésus comme le Messie (même lorsqu'on lui a dit de se taire);
+* Il a mis sa confiance dans le fait que Jésus pouvait le guérir, le sauver;
+* Il a tout laissé derrière (il a jeté son manteau, son seul bien, pour le lever).
+
     :sup:`43` Il retrouva immédiatement la vue et suivit Jésus en célébrant la gloire de Dieu. Voyant cela, tout le peuple se mit à adresser des louanges à Dieu.
+
+Le chef de la synagogue que Jésus avait appelé à la suivre est reparti tout triste car il n'a pas voulu faire ce pas de foi. Bartimée, lui, s'est mis à suivre Jésus avec joie en célébrant la gloire de Dieu. Quel constrate!
+
+
