@@ -194,3 +194,5 @@ Les Juifs, tellement convaincus de leur place spéciale aux yeux de Dieu, avaien
 
 À ce stade du ministère de Jésus, il n'y a plus que deux choix pour les chefs des Juifs: le reconnaître comme roi, ou le faire mourir. Ils pensent se débarrasser de lui en le tuant, mais en faisant cela, ils vont en fait réaliser les prophéties et la volonté de Dieu de faire de Jésus son Agneau qui porte les péchés du monde, donnant accès par la foi au salut par son sacrifice, et à la vie éternelle par sa résurrection!
 
+Jésus a déjà reçu la royauté sur toute chose, et nous sommes appelés à la reconnaître comme notre Sauveur et Seigneur aujourd'hui. Il nous a confié une mission pour les peuples et il va bientôt revenir nous chercher. Sommes nous prêts au retour du Seigneur dans la gloire, pour lui rendre compte des responsabilités qu'ils nous a confiées?
+
