@@ -31,7 +31,7 @@ Concernant le tribut à verset à César, ces groupes sont divisés:
 * Les pharisiens refusent l'idée que les Juifs doivent payer cet impôt (même si ils y sont contraints);
 * Les hérodiens soutiennent la paix romaine dont dépent l'impôt à Rome.
 
-Cette question est terrible. *A priori*, il n'y a que deux réponses:
+Ici, les pharisiens et les hérodiens se sont associés pour poser cette question à Jésus (Mat. 15.15-16). Cette question est terrible. *A priori*, il n'y a que deux réponses:
 
 * S'il dit qu'il faut payer le tribut à César, alors il est certain que Jésus ne peut pas être le Messie, car le Messie doit s'opposer à l'envahisseur et délivrer le peuple;
 * Si au contraire Jésus encourage à ne pas payer l'impôt, les hérodiens se feront un plaisir d'aller rapporter la chose à Ponce Pilate, qui fera arrêter Jésus comme activiste nationaliste mettant en danger les intérêts de l'Empire.
