@@ -14,7 +14,7 @@ L'impôt à César
     :sup:`26` Ils ne purent rien reprendre dans ses paroles devant le peuple ; mais, étonnés de sa réponse, ils gardèrent le silence.
 
 Le mariage à la résurrection
-============================ 
+============================= 
 
     :sup:`27` Quelques-uns des sadducéens, qui disent qu'il n'y a point de résurrection, s'approchèrent, et posèrent à Jésus cette question :
     :sup:`28` Maître, voici ce que Moïse nous a prescrit : Si le frère de quelqu'un meurt, ayant une femme sans avoir d'enfants, son frère épousera la femme, et suscitera une postérité à son frère.
@@ -22,4 +22,24 @@ Le mariage à la résurrection
     :sup:`30` Le second et le troisième épousèrent la veuve ;
     :sup:`31` il en fut de même des sept, qui moururent sans laisser d'enfants.
     :sup:`32` Enfin, la femme mourut aussi.
-    :sup:`33` A la résurrection, duquel d'entre eux sera-t-elle donc la femme ? Car les sept l'ont eue pour femme.20:34Jésus leur répondit : Les enfants de ce siècle prennent des femmes et des maris ;20:35mais ceux qui seront trouvés dignes d'avoir part au siècle à venir et à la résurrection des morts ne prendront ni femmes ni maris.20:36Car ils ne pourront plus mourir, parce qu'ils seront semblables aux anges, et qu'ils seront fils de Dieu, étant fils de la résurrection.20:37Que les morts ressuscitent, c'est ce que Moïse a fait connaître quand, à propos du buisson, il appelle le Seigneur le Dieu d'Abraham, le Dieu d'Isaac, et le Dieu de Jacob.20:38Or, Dieu n'est pas Dieu des morts, mais des vivants ; car pour lui tous sont vivants.20:39Quelques-uns des scribes, prenant la parole, dirent : Maître, tu as bien parlé.20:40Et ils n'osaient plus lui faire aucune question.20:41Jésus leur dit : Comment dit-on que le Christ est fils de David ?20:42David lui-même dit dans le livre des Psaumes : Le Seigneur a dit à mon Seigneur : Assieds-toi à ma droite,20:43Jusqu'à ce que je fasse de tes ennemis ton marchepied.20:44David donc l'appelle Seigneur ; comment est-il son fils ?20:45Tandis que tout le peuple l'écoutait, il dit à ses disciples :20:46Gardez-vous des scribes, qui aiment à se promener en robes longues, et à être salués dans les places publiques ; qui recherchent les premiers sièges dans les synagogues, et les premières places dans les festins ;20:47qui dévorent les maisons des veuves, et qui font pour l'apparence de longues prières. Ils seront jugés plus sévèrement.
+    :sup:`33` A la résurrection, duquel d'entre eux sera-t-elle donc la femme ? Car les sept l'ont eue pour femme.
+    :sup:`34` Jésus leur répondit : Les enfants de ce siècle prennent des femmes et des maris ;
+    :sup:`35` mais ceux qui seront trouvés dignes d'avoir part au siècle à venir et à la résurrection des morts ne prendront ni femmes ni maris.
+    :sup:`36` Car ils ne pourront plus mourir, parce qu'ils seront semblables aux anges, et qu'ils seront fils de Dieu, étant fils de la résurrection.
+    :sup:`37` Que les morts ressuscitent, c'est ce que Moïse a fait connaître quand, à propos du buisson, il appelle le Seigneur le Dieu d'Abraham, le Dieu d'Isaac, et le Dieu de Jacob.
+    :sup:`38` Or, Dieu n'est pas Dieu des morts, mais des vivants ; car pour lui tous sont vivants.
+    :sup:`39` Quelques-uns des scribes, prenant la parole, dirent : Maître, tu as bien parlé.
+    :sup:`40` Et ils n'osaient plus lui faire aucune question.
+
+Fils de David ou Fils de Dieu?
+================================
+
+    :sup:`41` Jésus leur dit : Comment dit-on que le Christ est fils de David ?
+    :sup:`42` David lui-même dit dans le livre des Psaumes : Le Seigneur a dit à mon Seigneur : Assieds-toi à ma droite,
+    :sup:`43` Jusqu'à ce que je fasse de tes ennemis ton marchepied.
+    :sup:`44` David donc l'appelle Seigneur ; comment est-il son fils ?
+    :sup:`45` Tandis que tout le peuple l'écoutait, il dit à ses disciples :
+    :sup:`46` Gardez-vous des scribes, qui aiment à se promener en robes longues, et à être salués dans les places publiques ; qui recherchent les premiers sièges dans les synagogues, et les premières places dans les festins ;
+    :sup:`47` qui dévorent les maisons des veuves, et qui font pour l'apparence de longues prières. Ils seront jugés plus sévèrement.
+
+
