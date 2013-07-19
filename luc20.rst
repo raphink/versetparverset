@@ -49,6 +49,20 @@ Jésus, déjouant leur piège, donne une réponse d'une sagesse inouïe, et rép
 
     :sup:`26` Ils ne purent rien reprendre dans ses paroles devant le peuple ; mais, étonnés de sa réponse, ils gardèrent le silence.
 
+
+Que penser de notre gouvernement actuel? Il prend des décisions contraires à la Parole de Dieu, de sorte que nous sommes dans une situation similaire aux Juifs de l'époque de Jésus, gouvernés par des incroyants. 
+
+Comment respecter les autorités tout en servant Dieu? Jésus nous répond: "Rendez aux autorités ce qui leur revient et à Dieu ce qui lui revient." Qu'est-ce qui revient aux autorités et à Dieu respectivement? Voyons ce que dit Paul dans le treizième chapitre de l'Epitre aux Romains:
+
+    :sup:`1` Que chacun se soumette aux autorités qui nous gouvernent, car toute autorité vient de Dieu, et celles qui existent ont été établies par Dieu.
+    :sup:`2` C'est pourquoi celui qui s'oppose à l'autorité résiste à l'ordre que Dieu a établi, et ceux qui résistent attireront une condamnation sur eux-mêmes.
+
+Pour ce qui est de rendre à Dieu ce qui est à Dieu, il dit au chapitre 12:
+
+    :sup:`1` Je vous encourage donc, frères et soeurs, par les compassions de Dieu, à offrir vos corps comme un sacrifice vivant, saint, agréable à Dieu. Ce sera de votre part un culte raisonnable.
+
+
+
 Le mariage à la résurrection
 ============================= 
 
