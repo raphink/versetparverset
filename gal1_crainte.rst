@@ -7,6 +7,16 @@ D'après Jon Courson
 
     « Et maintenant, est-ce la faveur des hommes que je désire, ou celle de Dieu ? Est-ce que je cherche à plaire aux hommes ? Si je plaisais encore aux hommes, je ne serais pas serviteur de Christ. » — Galates 1.10
 
+Nous avons parlé de l'importance de la grâce par rapport à la loi dans Galates 2. Par la Loi, c'est comme si Dieu nous avait donné une carte avec la destination à atteindre, mais aucun de nous n'est capable d'interpréter cette carte pour atteindre la destination; nous nous perdons sans cesse.
+
+Alors Dieu a envoyé son Fils Jésus. Jésus a « accompli » la carte et atteint l'objectif. Au passage, il a pris des chemins que nous ne pensions pas possible, même s'ils étaient bien sur la carte, et cela lui a value la mort. Aujourd'hui, la meilleure chose à faire pour nous est de suivre Jésus, puisqu'il est le seul a avoir atteint la destination.
+
+Après Son départ, Jésus ne nous a pas laissé seuls. Il nous a envoyé Son Esprit, qui est pour nous comme un GPS: il nous guide à chaque tournant, à chaque intersection, là où nous serions incapables de choisir en nous basant sur la carte. Nous avons toujours la carte, mais elle ne nous sert plus qu'à juger de la pertinence de la manière dont l'Esprit nous guide.
+
+Malheureusement, après quelques tournants, nous avons souvent tendance à penser que nous avons compris où le GPS nous emmène, et nous commençons à choisir l'itinéraire nous-mêmes, alors même que nous savons être incapables de comprendre la carte! À force de ne pas suivre le GPS, nous risquons d'être frustrés par ses indications et choisir de l'éteindre!
+
+Paul écrit aux Galates pour les mettre en garde contre une telle folie. Seulement, il prévient en introduction que l'Évangile qu'il prêche vient de Dieu, et que ce n'est pas pour plaire aux hommes qu'il le prêche, mais par crainte de Dieu.
+
     « C'est un piège que de trembler devant les hommes. » — Proverbe 29.25
 
 *La crainte de l'homme ne permet pas de servir Christ.*
@@ -154,8 +164,19 @@ Se rappeler de ce que Dieu a fait pour nous nous amène à le craindre (Jos 4.20
 
 Conséquence → pas de peur des hommes (Jos 8.1).
 
+
+L'exemple de Christ
+++++++++++++++++++++
+
+Comme toujours, Jésus lui-même est notre meilleur exemple en matière d'obéissance à Dieu.
+
+Il nous a mis en garde dans Matthieu 10.28:
+
+  « Ne redoutez pas ceux qui tuent le corps mais qui ne peuvent pas tuer l'âme. Redoutez plutôt celui qui peut faire périr l'âme et le corps en enfer. »
+
+Quant à lui-même, il n'a pas non plus laissé la crainte des hommes guider son ministère, « il n'a pas regardé son égalité avec Dieu comme un butin à préserver, mais il s'est dépouillé lui-même en prenant une condition de serviteur en devenant semblable aux être humains, [et] s'est humilié lui-même en faisant preuve d'obéissance jusqu'à la mort, même la mort sur la croix » (Phil 2.8).
+
+
 Mettons nous au service de Christ, en craignant Dieu, pas les hommes (Gal 1.10).
-
-
 
 
